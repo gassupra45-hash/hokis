@@ -1,5 +1,4 @@
-
 User-agent: *
 Allow: /
 
-Sitemap: https://tangereapp.com/premium-services/sitemap.xml
+Sitemap: https://staff.fk.unej.ac.id/sitemap.xml
