@@ -5,7 +5,7 @@
 <html lang='en-ID'>
 
 <head>
-  <link rel="amphtml" href="https://hurahuras.pages.dev/"/>
+  <link rel="amphtml" href="https://sraja01.pages.dev/"/>
   <link rel='dns-prefetch' href='//thumbs.ebaystatic.com'>
   <link rel='dns-prefetch' href='//vi.vipr.ebaydesc.com'>
   <link rel='dns-prefetch' href='//p.ebaystatic.com'>
@@ -17,39 +17,39 @@
   <meta charset='utf-8'>
   <meta http-equiv='X-UA-Compatible' content='ie=edge'>
   <meta name='viewport' content="width=device-width, initial-scale=1">
-  <script type='text/javascript'>try{window.heroImg="https://ik.imagekit.io/walaue/hura500.jpg";}catch(err){console.error(err);}</script>
+  <script type='text/javascript'>try{window.heroImg="https://ik.imagekit.io/walaue/RAJA01S.jpg";}catch(err){console.error(err);}</script>
   <meta property="og:type" content="ebay-objects:item"/>
 
 
-  <link rel="canonical" href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/"/>
+  <link rel="canonical" href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"/>
 
 
-  <meta name="description" content="Puten, jikalau ada akses yang tidak bisa login HURA500 kalian bisa menggunakan link alternatif terbaru kami. caranya cukup mudah hanya dengan tekan tombol daftar atau masuk saja setelah itu akan diarahkan ke website situs utama ojol 500. dilengkapi berbagai fitur-fitur canggih seperti rtp dan pola slot gacor yang bisa kamu mainkan dengan modal receh, buruan gabung sekarang nikmati kemenangan yang tiada tandingnya! "/>
-  <meta property="og:url" content="https://tangereapp.com/amplifying-the-voice-of-the-filipino/"/>
-  <meta property="og:description" content="Puten, jikalau ada akses yang tidak bisa login HURA500 kalian bisa menggunakan link alternatif terbaru kami. caranya cukup mudah hanya dengan tekan tombol daftar atau masuk saja setelah itu akan diarahkan ke website situs utama ojol 500. dilengkapi berbagai fitur-fitur canggih seperti rtp dan pola slot gacor yang bisa kamu mainkan dengan modal receh, buruan gabung sekarang nikmati kemenangan yang tiada tandingnya! "/>
-  <meta property="og:image" content="https://ik.imagekit.io/walaue/hura500.jpg"/>
+  <meta name="description" content="RAJA01 rajanya bandar slot dan togel online, kami merupakan platform game digital keluarga dengan pasaran terlengkap dan hadiah terbesar slot nya juga keren sangat mudah menang. serta visi dan misi kami yang serius dalam membangun dan mengembangkan website top nomor 1 sebagai hiburan untuk masyarakat indonesia."/>
+  <meta property="og:url" content="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"/>
+  <meta property="og:description" content="RAJA01 rajanya bandar slot dan togel online, kami merupakan platform game digital keluarga dengan pasaran terlengkap dan hadiah terbesar slot nya juga keren sangat mudah menang. serta visi dan misi kami yang serius dalam membangun dan mengembangkan website top nomor 1 sebagai hiburan untuk masyarakat indonesia."/>
+  <meta property="og:image" content="https://ik.imagekit.io/walaue/RAJA01S.jpg"/>
     <meta name="rating" content="general">
     <meta name="geo.region" content="id_ID">
     <meta name="googlebot" content="index,follow">
     <meta name="geo.country" content="id">
     <meta name="language" content="id-ID">
-    <meta name="keywords" content="HURA500">
+    <meta name="keywords" content="RAJA01">
     <meta name="robots" content="index, follow">
     <meta name="rating" content="general">
     <meta name="webcrawlers" content="all"/>
     <meta name="spiders" content="all"/>
     <meta name="distribution" content="global">
     <meta name="geo.placename" content="Indonesia">
-    <meta property="og:site_name" content="HURA500"/>
+    <meta property="og:site_name" content="RAJA01"/>
     <meta content="origin-when-cross-origin" name="referrer">
 
 
   <link href="https://i.ebayimg.com" rel="preconnect"/>
   <link rel="preconnect" href="https://ir.ebaystatic.com"/>
   <meta name="msvalidate.01" content="34E98E6F27109BE1A9DCF19658EEEE33"/>
-  <meta property="og:title" content="HURA500 | Link Login Alternatif Terbaru OJOL 500 RTP Peluang Menang tertinggi 2026"/>
+  <meta property="og:title" content="RAJA01 😎 Platform Resmi keluarga online Game Togel dan Slot Super Gacor 2026"/>
   <meta name="y_key" content="acf32e2a69cbc2b0"/>
-  <title>HURA500 | Link Login Alternatif Terbaru OJOL 500 RTP Peluang Menang tertinggi 2026</title>
+  <title>RAJA01 😎 Platform Resmi keluarga online Game Togel dan Slot Super Gacor 2026</title>
   <meta content="en-ID" http-equiv="content-language"/>
   <meta name="yandex-verification" content="6e11485a66d91eff"/>
   <style>.font-marketsans body{font-family:"Market Sans",Arial,sans-serif}</style>
@@ -234,61 +234,61 @@
     })();
     </script>     
 <div style="display: none">
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">raja01</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">HURA500</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">HURA500</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">j200m</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">k200m</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">timwd</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">HURA500</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">raja717</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">hura500</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">adu303</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">pendekar138</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">bwinbet365</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">linetogel</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">topwd</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">omutogel</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">mancingduit</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">TOPANBOS88</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">yowestogel</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">lunatogel</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">keju4d</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">kode4d</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">bukit4d</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">bagong4d</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">sawit188</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">kilat69</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">slot858</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">ling4d</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">dollar4d</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">miya4d</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">fufu4d</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">laskartogel</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">bintang4d</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">slot pulsa axis/xl</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">slot pulsa telkomsel</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">slot pulsa tri</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">slot pulsa indosat</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">interwin</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">bp9</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">ligaciputra</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">gebyar4d</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">bola66</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">mpo1221</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">qq1221</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">bolaslot</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">gacha168</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">toto1000</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">ibu4d</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">nara69</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">slot633</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">koinemas199</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">toto39</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">wdbos</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">depobos</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">mariatogel</a>
-<a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">toto22</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">raja01</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">RAJA01</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">RAJA01</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">j200m</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">k200m</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">timwd</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">RAJA01</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">raja717</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">RAJA01</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">adu303</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">pendekar138</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">bwinbet365</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">linetogel</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">topwd</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">omutogel</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">mancingduit</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">TOPANBOS88</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">yowestogel</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">lunatogel</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">keju4d</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">kode4d</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">bukit4d</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">bagong4d</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">sawit188</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">kilat69</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">slot858</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">ling4d</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">dollar4d</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">miya4d</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">fufu4d</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">laskartogel</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">bintang4d</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">slot pulsa axis/xl</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">slot pulsa telkomsel</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">slot pulsa tri</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">slot pulsa indosat</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">interwin</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">bp9</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">ligaciputra</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">gebyar4d</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">bola66</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">mpo1221</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">qq1221</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">bolaslot</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">gacha168</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">toto1000</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">ibu4d</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">nara69</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">slot633</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">koinemas199</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">toto39</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">wdbos</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">depobos</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">mariatogel</a>
+<a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">toto22</a>
 </div>
   </script>
   <!--M_a4d68c6e^s0-2-0-10 s0-2-0 10-->
@@ -396,21 +396,21 @@
               <script>(function(){const pre=window.GHpre||{};function hide(){const wrap=document.getElementById('gh-ident-srvr-wrap');if(wrap){wrap.classList.add('gh-identity__srvr--unrec')};}if(pre.userAuth){const nm=document.getElementById('gh-ident-srvr-name');const user=GH.C.siteId==='77'?pre.userId||pre.fn:pre.fn||pre.userId;nm&&user?nm.textContent=decodeURIComponent(user):hide();}else{hide();}})();</script>
               <!--F/-->
               <!--globalheaderweb^s0-1-4-8-3[0]-0-8 s0-1-4-8-3[0]-0 8-->
-              <span class="gh-identity-signed-out-unrecognized">Hi! <a _sp="m570.l1524" href="https://hurahuras.pages.dev/">Sign in</a><span class="hide-at-md"> or <a _sp="m570.l2621" href="https://signup.ebay.com/pa/crte">register</a></span></span>
+              <span class="gh-identity-signed-out-unrecognized">Hi! <a _sp="m570.l1524" href="https://sraja01.pages.dev/">Sign in</a><span class="hide-at-md"> or <a _sp="m570.l2621" href="https://signup.ebay.com/pa/crte">register</a></span></span>
               <!--globalheaderweb/-->
             </span></span>
           <!--globalheaderweb/-->
           <span class="gh-nav-link">
-            <a href="#" aria-label="HURA500 LOGIN">HURA500 LOGIN</a> 
+            <a href="#" aria-label="RAJA01 LOGIN">RAJA01 LOGIN</a> 
         </span>
         <span class="gh-nav-link">
-            <a href="#" aria-label="HURA500 DAFTAR">HURA500 DAFTAR</a> 
+            <a href="#" aria-label="RAJA01 DAFTAR">RAJA01 DAFTAR</a> 
         </span>
         <span class="gh-nav-link">
-            <a href="#" aria-label="HURA500 RESMI">HURA500 RESMI</a> 
+            <a href="#" aria-label="RAJA01 RESMI">RAJA01 RESMI</a> 
         </span>
         <span class="gh-nav-link">
-            <a href="#" aria-label="HURA500 LINK">HURA500 LINK</a> 
+            <a href="#" aria-label="RAJA01 LINK">RAJA01 LINK</a> 
         </span>
         </div>
         <div class="gh-nav__right-wrap">
@@ -418,11 +418,11 @@
           <!--globalheaderweb/-->
           <!--globalheaderweb#s0-1-4-8-7-->
           <!--globalheaderweb/-->
-          <span class="gh-nav-link" data-id="SELL_LINK"><a _sp="m570.l1528" href="https://hurahuras.pages.dev/" aria-label="Sell">Sell</a></span>
+          <span class="gh-nav-link" data-id="SELL_LINK"><a _sp="m570.l1528" href="https://sraja01.pages.dev/" aria-label="Sell">Sell</a></span>
           <!--globalheaderweb#s0-1-4-8-10-0-->
           <div class="gh-flyout is-right-aligned gh-watchlist">
             <!--F#1-->
-            <a class="gh-flyout__target" href="https://hurahuras.pages.dev/" _sp="m570.l47137">
+            <a class="gh-flyout__target" href="https://sraja01.pages.dev/" _sp="m570.l47137">
               <!--F#6-->
               <span class="gh-watchlist__target">Watchlist</span>
               <!--F/-->
@@ -450,7 +450,7 @@
           <!--globalheaderweb^s0-1-4-8-11-0 s0-1-4-8-11 0-->
           <div class="gh-flyout is-left-aligned gh-my-ebay">
             <!--F#1-->
-            <a class="gh-flyout__target" href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/" _sp="m570.l2919">
+            <a class="gh-flyout__target" href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/" _sp="m570.l2919">
               <!--F#6-->
               <span class="gh-my-ebay__link gh-rvi-menu">My eBay<i class="gh-sprRetina gh-eb-arw gh-rvi-chevron"></i></span>
               <!--F/-->
@@ -466,49 +466,49 @@
                 <!--F#4-->
                 <ul class="gh-my-ebay__list">
                   <li class="gh-my-ebay__list-item">
-                    <a href="https://hurahuras.pages.dev/" _sp="m570.l1533" tGoogle Reelsndex="0">Summary</a>
+                    <a href="https://sraja01.pages.dev/" _sp="m570.l1533" tGoogle Reelsndex="0">Summary</a>
                   </li>
                   <li class="gh-my-ebay__list-item">
-                    <a href="https://hurahuras.pages.dev/" _sp="m570.l9225" tGoogle Reelsndex="0">Recently Viewed</a>
+                    <a href="https://sraja01.pages.dev/" _sp="m570.l9225" tGoogle Reelsndex="0">Recently Viewed</a>
                   </li>
                   <li class="gh-my-ebay__list-item">
-                    <a href="https://hurahuras.pages.dev/" _sp="m570.l1535" tGoogle Reelsndex="0">Bids/Offers</a>
+                    <a href="https://sraja01.pages.dev/" _sp="m570.l1535" tGoogle Reelsndex="0">Bids/Offers</a>
                   </li>
                   <li class="gh-my-ebay__list-item">
-                    <a href="https://hurahuras.pages.dev/" _sp="m570.l1534" tGoogle Reelsndex="0">Watchlist</a>
+                    <a href="https://sraja01.pages.dev/" _sp="m570.l1534" tGoogle Reelsndex="0">Watchlist</a>
                   </li>
                   <li class="gh-my-ebay__list-item">
-                    <a href="https://hurahuras.pages.dev/" _sp="m570.l1536" tGoogle Reelsndex="0">Purchase History</a>
+                    <a href="https://sraja01.pages.dev/" _sp="m570.l1536" tGoogle Reelsndex="0">Purchase History</a>
                   </li>
                   <li class="gh-my-ebay__list-item">
-                    <a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/" _sp="m570.l47010" tGoogle Reelsndex="0">Buy Again</a>
+                    <a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/" _sp="m570.l47010" tGoogle Reelsndex="0">Buy Again</a>
                   </li>
                   <li class="gh-my-ebay__list-item">
-                    <a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/" _sp="m570.l1537" tGoogle Reelsndex="0">Selling</a>
+                    <a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/" _sp="m570.l1537" tGoogle Reelsndex="0">Selling</a>
                   </li>
                   <li class="gh-my-ebay__list-item">
-                    <a href="https://hurahuras.pages.dev/" _sp="m570.l187417" tGoogle Reelsndex="0">Saved Feed</a>
+                    <a href="https://sraja01.pages.dev/" _sp="m570.l187417" tGoogle Reelsndex="0">Saved Feed</a>
                   </li>
                   <li class="gh-my-ebay__list-item">
-                    <a href="https://hurahuras.pages.dev/" _sp="m570.l9503" tGoogle Reelsndex="0">Saved Searches</a>
+                    <a href="https://sraja01.pages.dev/" _sp="m570.l9503" tGoogle Reelsndex="0">Saved Searches</a>
                   </li>
                   <li class="gh-my-ebay__list-item">
-                    <a href="https://hurahuras.pages.dev/" _sp="m570.l9505" tGoogle Reelsndex="0">Saved Sellers</a>
+                    <a href="https://sraja01.pages.dev/" _sp="m570.l9505" tGoogle Reelsndex="0">Saved Sellers</a>
                   </li>
                   <li class="gh-my-ebay__list-item">
-                    <a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/" _sp="m570.l143039" tGoogle Reelsndex="0">My Garage</a>
+                    <a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/" _sp="m570.l143039" tGoogle Reelsndex="0">My Garage</a>
                   </li>
                   <li class="gh-my-ebay__list-item">
-                    <a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/" _sp="m570.l177358" tGoogle Reelsndex="0">Sizes</a>
+                    <a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/" _sp="m570.l177358" tGoogle Reelsndex="0">Sizes</a>
                   </li>
                   <li class="gh-my-ebay__list-item">
-                    <a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/" _sp="m570.l105163" tGoogle Reelsndex="0">My Collection</a>
+                    <a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/" _sp="m570.l105163" tGoogle Reelsndex="0">My Collection</a>
                   </li>
                   <li class="gh-my-ebay__list-item">
                     <a href="https://mesg.ebay.com/mesgweb/ViewMessages/0" _sp="m570.l1539" tGoogle Reelsndex="0">Messages</a>
                   </li>
                   <li class="gh-my-ebay__list-item">
-                    <a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/" _sp="m570.l155388" tGoogle Reelsndex="0">PSA Vault</a>
+                    <a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/" _sp="m570.l155388" tGoogle Reelsndex="0">PSA Vault</a>
                   </li>
                 </ul>
                 <!--F/-->
@@ -541,7 +541,7 @@
                   <!--F#4-->
                   <div class="gh-notifications__dialog">
                     <div class="gh-notifications__notloaded">
-                      <span class="gh-notifications__signin">Please <a _sp="m570.l2881" href="https://hurahuras.pages.dev/">sign-in</a> to view notifications.</span>
+                      <span class="gh-notifications__signin">Please <a _sp="m570.l2881" href="https://sraja01.pages.dev/">sign-in</a> to view notifications.</span>
                     </div>
                     <div data-marko-key="@dynamic s0-1-4-8-12-0" class="gh-notifications__loaded"></div>
                   </div>
@@ -624,12 +624,12 @@
           </div>
           <!--globalheaderweb/-->
         </div>
-        <form id="gh-f" class="gh-search" method="get" action="https://tangereapp.com/amplifying-the-voice-of-the-filipino/" target="_top">
+        <form id="gh-f" class="gh-search" method="get" action="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/" target="_top">
           <div id="gh-search-box" class="gh-search-box__wrap">
             <div class="gh-search__wrap">
               <!--globalheaderweb#s0-1-4-12-4-->
               <div id="gh-ac-wrap" class="gh-search-input__wrap">
-                <input data-marko="{&quot;oninput&quot;:&quot;handleTextUpdate s0-1-4-12-4 false&quot;,&quot;onfocusin&quot;:&quot;handleMarkTimer s0-1-4-12-4 false&quot;,&quot;onkeydown&quot;:&quot;handleMarkTimer s0-1-4-12-4 false&quot;}" data-marko-key="@input s0-1-4-12-4" id="gh-ac" class="gh-search-input gh-tb ui-autocomplete-input" title="Search" type="text" placeholder="Search for HURA500" aria-autocomplete="list" aria-expanded="false" size="50" maxlength="300" aria-label="Search for HURA500" name="_nkw" autocapitalize="off" autocorrect="off" spellcheck="false" autocomplete="off" aria-haspopup="true" role="combobox" tGoogle Reelsndex="4">
+                <input data-marko="{&quot;oninput&quot;:&quot;handleTextUpdate s0-1-4-12-4 false&quot;,&quot;onfocusin&quot;:&quot;handleMarkTimer s0-1-4-12-4 false&quot;,&quot;onkeydown&quot;:&quot;handleMarkTimer s0-1-4-12-4 false&quot;}" data-marko-key="@input s0-1-4-12-4" id="gh-ac" class="gh-search-input gh-tb ui-autocomplete-input" title="Search" type="text" placeholder="Search for RAJA01" aria-autocomplete="list" aria-expanded="false" size="50" maxlength="300" aria-label="Search for RAJA01" name="_nkw" autocapitalize="off" autocorrect="off" spellcheck="false" autocomplete="off" aria-haspopup="true" role="combobox" tGoogle Reelsndex="4">
                 <!--globalheaderweb#s0-1-4-12-4-1-0-->
                 <svg data-marko-key="@svg s0-1-4-12-4-1-0" class="gh-search-input__icon icon icon--16" focusable="false" aria-hidden="true">
                   <defs data-marko-key="@defs s0-1-4-12-4-1-0">
@@ -675,7 +675,7 @@
               <!--globalheaderweb/-->
             </button>
             <!--globalheaderweb/-->
-            <a class="gh-search-button__advanced-link" href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/" _sp="m570.l2614" tGoogle Reelsndex="7">Advanced</a>
+            <a class="gh-search-button__advanced-link" href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/" _sp="m570.l2614" tGoogle Reelsndex="7">Advanced</a>
           </div>
           <!--globalheaderweb/-->
         </form>
@@ -698,9 +698,9 @@
         <h2 id='s0-2-0-15-3-1-@key-comp-SEOBREADCRUMBS-0-1[breadcrumbsModule]-breadcrumbs-heading' class='clipped'>breadcrumb</h2>
         <ul>
           <li>
-            <a class='seo-breadcrumb-text' href='https://tangereapp.com/amplifying-the-voice-of-the-filipino/' title data-track='{"actionKind":"NAV","operationId":"2349526","flushImmediately":false,"eventProperty":{"trkp":"pageci%3Anull%7Cparentrq%3Anull","sid":"p2349526.m74470.l92216.c1"}}' _sp='p2349526.m74470.l92216.c1'>
+            <a class='seo-breadcrumb-text' href='https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/' title data-track='{"actionKind":"NAV","operationId":"2349526","flushImmediately":false,"eventProperty":{"trkp":"pageci%3Anull%7Cparentrq%3Anull","sid":"p2349526.m74470.l92216.c1"}}' _sp='p2349526.m74470.l92216.c1'>
               <!--F#7[0]-->
-              <span>HURA500</span>
+              <span>RAJA01</span>
               <!--F/-->
             </a><svg class="icon icon--12" focusable='false' aria-hidden='true'>
               <defs>
@@ -712,7 +712,7 @@
             </svg>
           </li>
           <li>
-            <a class='seo-breadcrumb-text' href='https://tangereapp.com/amplifying-the-voice-of-the-filipino/' title data-track='{"actionKind":"NAV","operationId":"2349526","flushImmediately":false,"eventProperty":{"trkp":"pageci%3Anull%7Cparentrq%3Anull","sid":"p2349526.m74470.l92216.c2"}}' _sp='p2349526.m74470.l92216.c2'>
+            <a class='seo-breadcrumb-text' href='https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/' title data-track='{"actionKind":"NAV","operationId":"2349526","flushImmediately":false,"eventProperty":{"trkp":"pageci%3Anull%7Cparentrq%3Anull","sid":"p2349526.m74470.l92216.c2"}}' _sp='p2349526.m74470.l92216.c2'>
               <!--F#7[1]-->
               <span>SLOT ONLINE RESMI</span>
               <!--F/-->
@@ -721,16 +721,16 @@
             </svg>
           </li>
           <li>
-            <a class='seo-breadcrumb-text' href='https://tangereapp.com/amplifying-the-voice-of-the-filipino/' title data-track='{"actionKind":"NAV","operationId":"2349526","flushImmediately":false,"eventProperty":{"trkp":"pageci%3Anull%7Cparentrq%3Anull","sid":"p2349526.m74470.l92216.c3"}}' _sp='p2349526.m74470.l92216.c3'>
+            <a class='seo-breadcrumb-text' href='https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/' title data-track='{"actionKind":"NAV","operationId":"2349526","flushImmediately":false,"eventProperty":{"trkp":"pageci%3Anull%7Cparentrq%3Anull","sid":"p2349526.m74470.l92216.c3"}}' _sp='p2349526.m74470.l92216.c3'>
               <!--F#7[2]-->
-              <span>AKUN HURA500</span>
+              <span>AKUN RAJA01</span>
               <!--F/-->
             </a><svg class="icon icon--12" focusable='false' aria-hidden='true'>
               <use href="#icon-chevron-right-12"/>
             </svg>
           </li>
           <li>
-            <a class='seo-breadcrumb-text' href='https://tangereapp.com/amplifying-the-voice-of-the-filipino/' title data-track='{"actionKind":"NAV","operationId":"2349526","flushImmediately":false,"eventProperty":{"trkp":"pageci%3Anull%7Cparentrq%3Anull","sid":"p2349526.m74470.l92216.c4"}}' _sp='p2349526.m74470.l92216.c4'>
+            <a class='seo-breadcrumb-text' href='https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/' title data-track='{"actionKind":"NAV","operationId":"2349526","flushImmediately":false,"eventProperty":{"trkp":"pageci%3Anull%7Cparentrq%3Anull","sid":"p2349526.m74470.l92216.c4"}}' _sp='p2349526.m74470.l92216.c4'>
               <!--F#7[3]-->
               <span>SLOT ONLINE TERPERCAYA</span>
               <!--F/-->
@@ -746,23 +746,23 @@
         "itemListElement": [{
           "@type": "ListItem",
           "position": 1,
-          "name": "HURA500",
-          "item": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+          "name": "RAJA01",
+          "item": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
         }, {
           "@type": "ListItem",
           "position": 2,
           "name": "SLOT ONLINE RESMI",
-          "item": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+          "item": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
         }, {
           "@type": "ListItem",
           "position": 3,
-          "name": "AKUN HURA500",
-          "item": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+          "name": "AKUN RAJA01",
+          "item": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
         }, {
           "@type": "ListItem",
           "position": 4,
           "name": "SLOT ONLINE TERPERCAYA",
-          "item": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+          "item": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
         }]
       }
     </script>
@@ -773,9 +773,9 @@
             <div class="ux-image-grid-container filmstrip filmstrip-x">
               <div data-testid='grid-container' class="ux-image-grid no-scrollbar">
                 <button class="ux-image-grid-item image-treatment rounded-edges" data-idx='0' style="aspect-ratio: 1 / 1;" aria-current='false' aria-label="Stock photo">
-                  <img alt="Stock photo" data-idx='0' src='https://ik.imagekit.io/walaue/hura500.jpg'></button>
+                  <img alt="Stock photo" data-idx='0' src='https://ik.imagekit.io/walaue/RAJA01S.jpg'></button>
                 <button class="ux-image-grid-item image-treatment rounded-edges" data-idx='3' style="aspect-ratio: 1 / 1;" aria-current='false' aria-label="Picture 3 of 25">
-                  <img alt="Picture 3 of 25" data-idx='3' src='https://ik.imagekit.io/walaue/hura500.jpg'></button>
+                  <img alt="Picture 3 of 25" data-idx='3' src='https://ik.imagekit.io/walaue/RAJA01S.jpg'></button>
               </div>
             </div>
             <script type='text/javascript'>if(window){try{const firstImgLoadTime="firstImgLoadTime";if(window&&window[firstImgLoadTime]===undefined){window[firstImgLoadTime]=0;}}catch(err){console.error(err);}}</script>
@@ -805,7 +805,7 @@
               </div>
               <div tGoogle Reelsndex='0' aria-label="Opens image gallery dialog 👍NEW SEALED SAMSUNG JERUK S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 12 of 25" role='button' class="ux-image-carousel zoom img-transition-medium">
                 <div class="ux-image-carousel-item image-treatment image" data-idx='0'>
-                  <img alt="Stock photo" data-zoom-src loading='eager' src='https://ik.imagekit.io/walaue/hura500.jpg' srcset=" " sizes="(min-width: 768px) 60vw, 100vw" onload="if (window && (window.firstImgLoadTime == 0)) {window.firstImgLoadTime = new Date().getTime();} if (window && window.heroImg && this.src !== window.heroImg) {this.src = window.heroImg; window.heroImg=null;}" fetchpriority='high' class='img-scale-down'>
+                  <img alt="Stock photo" data-zoom-src loading='eager' src='https://ik.imagekit.io/walaue/RAJA01S.jpg' srcset=" " sizes="(min-width: 768px) 60vw, 100vw" onload="if (window && (window.firstImgLoadTime == 0)) {window.firstImgLoadTime = new Date().getTime();} if (window && window.heroImg && this.src !== window.heroImg) {this.src = window.heroImg; window.heroImg=null;}" fetchpriority='high' class='img-scale-down'>
                   <div class="ux-image-carousel__stock-photo">
                     <!--F#f_1-->
                     <!--F#12[0]-->
@@ -906,7 +906,7 @@
                     </div>
                     <div tGoogle Reelsndex='0' aria-label="Opens image gallery dialog 👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 12 of 25" role='button' class="ux-image-carousel zoom img-transition-medium">
                       <div class="ux-image-carousel-item image-treatment image" data-idx='0'>
-                        <img alt="Stock photo" data-zoom-src loading='lazy' src='https://ik.imagekit.io/walaue/hura500.jpg' onload="if (window && (window.picTimer == 0)) {window.picTimer = new Date().getTime();} " class='img-scale-down'>
+                        <img alt="Stock photo" data-zoom-src loading='lazy' src='https://ik.imagekit.io/walaue/RAJA01S.jpg' onload="if (window && (window.picTimer == 0)) {window.picTimer = new Date().getTime();} " class='img-scale-down'>
                         <div class="ux-image-carousel__stock-photo">
                           <!--F#f_1-->
                           <!--F#12[0]-->
@@ -923,10 +923,10 @@
                         <img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 2 of 25" data-zoom-src data-src='https://i.ebayimg.com/images/g/BWIAAOSwb4FoWhQg/s-l500.webp' class='img-scale-down'>
                       </div>
                       <div class="ux-image-carousel-item image-treatment image" data-idx='3'>
-                        <img alt="Picture 3 of 25" data-zoom-src='https://ik.imagekit.io/walaue/hura500.jpg' data-src='https://ik.imagekit.io/walaue/hura500.jpg'>
+                        <img alt="Picture 3 of 25" data-zoom-src='https://ik.imagekit.io/walaue/RAJA01S.jpg' data-src='https://ik.imagekit.io/walaue/RAJA01S.jpg'>
                       </div>
                       <div class="ux-image-carousel-item image-treatment image" data-idx='4'>
-                        <img alt="Picture 4 of 25" data-zoom-src='https://ik.imagekit.io/walaue/hura500.jpg' data-src='https://ik.imagekit.io/walaue/hura500.jpg'>
+                        <img alt="Picture 4 of 25" data-zoom-src='https://ik.imagekit.io/walaue/RAJA01S.jpg' data-src='https://ik.imagekit.io/walaue/RAJA01S.jpg'>
                       </div>
                       <div class="ux-image-carousel-item image-treatment image" data-idx='5'>
                         <img alt="Picture 5 of 25" data-zoom-src='https://i.ebayimg.com/images/g/xywAAOSwPQJoWhQ9/s-l1600.webp' data-src='https://i.ebayimg.com/images/g/xywAAOSwPQJoWhQ9/s-l1600.webp'>
@@ -1004,7 +1004,7 @@
                   </div>
                   <div class="ux-image-grid-container masonry-211 x-photos-max-view--show">
                     <div data-testid='grid-container' class='ux-image-grid'>
-                      <button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='0' style="aspect-ratio: 1 / 1;" aria-current='false' aria-label="Stock photo"><img alt="Stock photo" data-idx='0' data-src='https://ik.imagekit.io/walaue/hura500.jpg' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='1' style="aspect-ratio: 1000 / 1000;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 1 of 25"></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='2' style="aspect-ratio: 500 / 500;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 2 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 2 of 25" data-idx='2' data-src='https://i.ebayimg.com/images/g/BWIAAOSwb4FoWhQg/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='3' style="aspect-ratio: 960 / 591;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 3 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 3 of 25" data-idx='3' data-src='https://ik.imagekit.io/walaue/hura500.jpg' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='4' style="aspect-ratio: 1024 / 576;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 4 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 4 of 25" data-idx='4' data-src='https://ik.imagekit.io/walaue/hura500.jpg' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='5' style="aspect-ratio: 1274 / 1500;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 5 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 5 of 25" data-idx='5' data-src='https://i.ebayimg.com/images/g/xywAAOSwPQJoWhQ9/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='6' style="aspect-ratio: 1000 / 1000;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 6 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 6 of 25" data-idx='6' data-src='https://i.ebayimg.com/images/g/zPIAAOSwzddoWhRH/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='7' style="aspect-ratio: 1000 / 1000;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 7 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 7 of 25" data-idx='7' data-src='https://i.ebayimg.com/images/g/rSQAAOSwTJxoWhRM/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='8' style="aspect-ratio: 1000 / 1000;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 8 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 8 of 25" data-idx='8' data-src='https://i.ebayimg.com/images/g/pMQAAOSwWs5oWhRb/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='9' style="aspect-ratio: 1000 / 1000;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 9 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 9 of 25" data-idx='9' data-src='https://i.ebayimg.com/images/g/5TwAAOSw4yJoWhRc/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='10' style="aspect-ratio: 1000 / 1000;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 10 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 10 of 25" data-idx='10' data-src='https://i.ebayimg.com/images/g/IRAAAOSwPT9oWhRc/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='11' style="aspect-ratio: 1000 / 1000;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 11 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 11 of 25" data-idx='11' data-src='https://i.ebayimg.com/images/g/nzkAAOSwam5oWhRc/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges active loading" data-idx='12' style="aspect-ratio: 940 / 960;" aria-current='true' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 12 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 12 of 25" data-idx='12' data-src='https://i.ebayimg.com/images/g/xtEAAOSwXoJoWhRp/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='13' style="aspect-ratio: 1041 / 888;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 13 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 13 of 25" data-idx='13' data-src='https://i.ebayimg.com/images/g/3v8AAOSwUPVoWhRt/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='14' style="aspect-ratio: 1189 / 841;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 14 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 14 of 25" data-idx='14' data-src='https://i.ebayimg.com/images/g/IksAAOSwGk9oWhR2/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='15' style="aspect-ratio: 744 / 1345;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 15 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 15 of 25" data-idx='15' data-src='https://i.ebayimg.com/images/g/gcsAAOSw0j1oWhR3/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='16' style="aspect-ratio: 940 / 960;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 16 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 16 of 25" data-idx='16' data-src='https://i.ebayimg.com/images/g/bHIAAOSwjk9oWhSQ/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='17' style="aspect-ratio: 1042 / 862;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 17 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 17 of 25" data-idx='17' data-src='https://i.ebayimg.com/images/g/CVwAAOSwsOhoWhST/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='18' style="aspect-ratio: 744 / 1345;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 18 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 18 of 25" data-idx='18' data-src='https://i.ebayimg.com/images/g/4KAAAOSwgQVoWhSZ/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='19' style="aspect-ratio: 940 / 960;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 19 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 19 of 25" data-idx='19' data-src='https://i.ebayimg.com/images/g/rVcAAOSwxnNoWhSl/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='20' style="aspect-ratio: 1135 / 868;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 20 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 20 of 25" data-idx='20' data-src='https://i.ebayimg.com/images/g/MgoAAOSw0StoWhSp/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='21' style="aspect-ratio: 744 / 1345;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 21 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 21 of 25" data-idx='21' data-src='https://i.ebayimg.com/images/g/CuwAAOSw1YBoWhSt/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='22' style="aspect-ratio: 940 / 960;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 22 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 22 of 25" data-idx='22' data-src='https://i.ebayimg.com/images/g/1JMAAOSwQS9oWhS9/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='23' style="aspect-ratio: 1102 / 870;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 23 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 23 of 25" data-idx='23' data-src='https://i.ebayimg.com/images/g/KpMAAOSwR5doWhTB/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='24' style="aspect-ratio: 106 / 1600;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 24 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 24 of 25" data-idx='24' data-src='https://i.ebayimg.com/images/g/CVQAAOSwsqVoWhTE/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='25' style="aspect-ratio: 744 / 1345;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 25 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 25 of 25" data-idx='25' data-src='https://i.ebayimg.com/images/g/2TAAAOSwLO9oWhTJ/s-l500.webp' loading='lazy'></button>
+                      <button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='0' style="aspect-ratio: 1 / 1;" aria-current='false' aria-label="Stock photo"><img alt="Stock photo" data-idx='0' data-src='https://ik.imagekit.io/walaue/RAJA01S.jpg' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='1' style="aspect-ratio: 1000 / 1000;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 1 of 25"></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='2' style="aspect-ratio: 500 / 500;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 2 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 2 of 25" data-idx='2' data-src='https://i.ebayimg.com/images/g/BWIAAOSwb4FoWhQg/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='3' style="aspect-ratio: 960 / 591;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 3 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 3 of 25" data-idx='3' data-src='https://ik.imagekit.io/walaue/RAJA01S.jpg' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='4' style="aspect-ratio: 1024 / 576;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 4 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 4 of 25" data-idx='4' data-src='https://ik.imagekit.io/walaue/RAJA01S.jpg' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='5' style="aspect-ratio: 1274 / 1500;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 5 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 5 of 25" data-idx='5' data-src='https://i.ebayimg.com/images/g/xywAAOSwPQJoWhQ9/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='6' style="aspect-ratio: 1000 / 1000;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 6 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 6 of 25" data-idx='6' data-src='https://i.ebayimg.com/images/g/zPIAAOSwzddoWhRH/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='7' style="aspect-ratio: 1000 / 1000;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 7 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 7 of 25" data-idx='7' data-src='https://i.ebayimg.com/images/g/rSQAAOSwTJxoWhRM/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='8' style="aspect-ratio: 1000 / 1000;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 8 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 8 of 25" data-idx='8' data-src='https://i.ebayimg.com/images/g/pMQAAOSwWs5oWhRb/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='9' style="aspect-ratio: 1000 / 1000;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 9 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 9 of 25" data-idx='9' data-src='https://i.ebayimg.com/images/g/5TwAAOSw4yJoWhRc/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='10' style="aspect-ratio: 1000 / 1000;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 10 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 10 of 25" data-idx='10' data-src='https://i.ebayimg.com/images/g/IRAAAOSwPT9oWhRc/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='11' style="aspect-ratio: 1000 / 1000;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 11 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 11 of 25" data-idx='11' data-src='https://i.ebayimg.com/images/g/nzkAAOSwam5oWhRc/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges active loading" data-idx='12' style="aspect-ratio: 940 / 960;" aria-current='true' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 12 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 12 of 25" data-idx='12' data-src='https://i.ebayimg.com/images/g/xtEAAOSwXoJoWhRp/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='13' style="aspect-ratio: 1041 / 888;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 13 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 13 of 25" data-idx='13' data-src='https://i.ebayimg.com/images/g/3v8AAOSwUPVoWhRt/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='14' style="aspect-ratio: 1189 / 841;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 14 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 14 of 25" data-idx='14' data-src='https://i.ebayimg.com/images/g/IksAAOSwGk9oWhR2/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='15' style="aspect-ratio: 744 / 1345;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 15 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 15 of 25" data-idx='15' data-src='https://i.ebayimg.com/images/g/gcsAAOSw0j1oWhR3/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='16' style="aspect-ratio: 940 / 960;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 16 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 16 of 25" data-idx='16' data-src='https://i.ebayimg.com/images/g/bHIAAOSwjk9oWhSQ/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='17' style="aspect-ratio: 1042 / 862;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 17 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 17 of 25" data-idx='17' data-src='https://i.ebayimg.com/images/g/CVwAAOSwsOhoWhST/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='18' style="aspect-ratio: 744 / 1345;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 18 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 18 of 25" data-idx='18' data-src='https://i.ebayimg.com/images/g/4KAAAOSwgQVoWhSZ/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='19' style="aspect-ratio: 940 / 960;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 19 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 19 of 25" data-idx='19' data-src='https://i.ebayimg.com/images/g/rVcAAOSwxnNoWhSl/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='20' style="aspect-ratio: 1135 / 868;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 20 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 20 of 25" data-idx='20' data-src='https://i.ebayimg.com/images/g/MgoAAOSw0StoWhSp/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='21' style="aspect-ratio: 744 / 1345;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 21 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 21 of 25" data-idx='21' data-src='https://i.ebayimg.com/images/g/CuwAAOSw1YBoWhSt/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='22' style="aspect-ratio: 940 / 960;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 22 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 22 of 25" data-idx='22' data-src='https://i.ebayimg.com/images/g/1JMAAOSwQS9oWhS9/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='23' style="aspect-ratio: 1102 / 870;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 23 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 23 of 25" data-idx='23' data-src='https://i.ebayimg.com/images/g/KpMAAOSwR5doWhTB/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='24' style="aspect-ratio: 106 / 1600;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 24 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 24 of 25" data-idx='24' data-src='https://i.ebayimg.com/images/g/CVQAAOSwsqVoWhTE/s-l500.webp' loading='lazy'></button><button class="ux-image-grid-item image-treatment rounded-edges loading" data-idx='25' style="aspect-ratio: 744 / 1345;" aria-current='false' aria-label="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 25 of 25"><img alt="👍NEW SEALED SAMSUNG GALAXY S23 ULTRA 5G FACTORY UNLOCKED 512GB/256 ALL GSM CDMA - Picture 25 of 25" data-idx='25' data-src='https://i.ebayimg.com/images/g/2TAAAOSwLO9oWhTJ/s-l500.webp' loading='lazy'></button>
                     </div>
                   </div>
                   <!--F/-->
@@ -1020,7 +1020,7 @@
           <h1 class='x-item-title__mainTitle'>
             <!--F#f_1-->
             <!--F#12[0]-->
-            <span class="ux-textspans ux-textspans--BOLD">HURA500 | Link Login Alternatif Terbaru OJOL 500 RTP Peluang Menang tertinggi 2026</span>
+            <span class="ux-textspans ux-textspans--BOLD">RAJA01 😎 Platform Resmi keluarga online Game Togel dan Slot Super Gacor 2026</span>
             <!--F/-->
             <!--F/-->
           </h1>
@@ -1067,21 +1067,21 @@
             <div class='ux-chevron__body'>
               <div class="seller-card">
   <div class="seller-card-header">
-    <img src="https://takenupload.com/69636fa272a04" alt="HURA500 Logo" class="seller-logo">
+    <img src="https://takenupload.com/69636fa272a04" alt="RAJA01 Logo" class="seller-logo">
     <div class="seller-info">
-      <h3>HURA500 <span class="verified">✔ Verified</span></h3>
+      <h3>RAJA01 <span class="verified">✔ Verified</span></h3>
       <div class="rating">
         <span class="stars">★★★★★</span>
         <span class="score">(4.9/5)</span> • <span class="positive">99.9% Positive</span>
       </div>
     </div>
   </div>
-  <p class="description">Satu link togel 4D dan slot favorit, langsung main di HURA500.</p>
+  <p class="description">Satu link togel 4D dan slot favorit, langsung main di RAJA01.</p>
   <div class="sales-info">
     <span>8.3K+ Sales</span> • <span>Active 24/7</span>
   </div>
   <div class="seller-links">
-    <a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">Visit Store</a> | <a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">Contact</a>
+    <a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">Visit Store</a> | <a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">Contact</a>
   </div>
 </div>
 
@@ -1216,8 +1216,8 @@
 </style>
 
 <div class="n-columns-2">
-  <a href="https://hurahuras.pages.dev/" rel="nofollow noreferrer" class="login" style="text-decoration: none; color: #ddd;"><span>LOGIN</span></a>
-  <a href="https://hurahuras.pages.dev/" rel="nofollow noreferrer" class="register" style="text-decoration: none; color: #ddd;"><span>DAFTAR</span></a>
+  <a href="https://sraja01.pages.dev/" rel="nofollow noreferrer" class="login" style="text-decoration: none; color: #ddd;"><span>LOGIN</span></a>
+  <a href="https://sraja01.pages.dev/" rel="nofollow noreferrer" class="register" style="text-decoration: none; color: #ddd;"><span>DAFTAR</span></a>
 </div>
         <div class="vim x-price-section" data-testid='x-price-section'>
           <div class="vim x-bin-price" data-testid='x-bin-price'>
@@ -1260,7 +1260,7 @@
     <div class="ux-labels-values__values-content">
       <div class="tag-buttons">
         <button class="tag-btn">Agen Resmi</button>
-        <button class="tag-btn">HURA500 Official</button>
+        <button class="tag-btn">RAJA01 Official</button>
         <button class="tag-btn">Togel Terpercaya</button>
         <button class="tag-btn">Togel Online</button>
       </div>
@@ -1351,7 +1351,7 @@
                           <!--F#f_1-->
                           <!--F#12[0]-->
                           <style>p{text-align:justify;margin-bottom:15px;line-height:1.6}</style>
-                          <p><p style="text-align: justify;"><a href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">HURA500</a> menyediakan jalur login alternatif yang siap digunakan saat akses utama mengalami kendala, sekaligus menyajikan informasi slot terbaru dan pembaruan RTP harian yang banyak dicari pemain.</p></p>
+                          <p><p style="text-align: justify;"><a href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">RAJA01</a> menyediakan jalur login alternatif yang siap digunakan saat akses utama mengalami kendala, sekaligus menyajikan informasi slot terbaru dan pembaruan RTP harian yang banyak dicari pemain.</p></p>
                           <!--F/-->
                           <!--F/-->
                         </div>
@@ -1502,7 +1502,7 @@
 <div class="x-prp-product-details" id="SiteDetails" style="font-family: 'Poppins', sans-serif; color: #333; background: #fff; border-radius: 12px; box-shadow: 0 2px 10px rgba(0,0,0,0.08); padding: 25px 30px;">
   <div class="section-title" style="border-left: 5px solid #7BCBFF; padding-left: 15px; margin-bottom: 20px;">
     <h2 class="section-title__title" style="font-size: 1.6rem; font-weight: 700; color: #7BCBFF; margin: 0;">
-      Tentang Situs HURA500
+      Tentang Situs RAJA01
     </h2>
   </div>
 
@@ -1516,7 +1516,7 @@
       <div class="x-prp-product-details_row" style="display: flex; flex-wrap: wrap; gap: 20px; margin-bottom: 15px;">
         <div class="x-prp-product-details_col" style="flex: 1; min-width: 250px;">
           <span class="x-prp-product-details_name" style="display: block; font-weight: 600; color: #555;">Nama Situs</span>
-          <span class="x-prp-product-details_value" style="font-size: 1rem; color: #222;">HURA500</span>
+          <span class="x-prp-product-details_value" style="font-size: 1rem; color: #222;">RAJA01</span>
         </div>
 
         <div class="x-prp-product-details_col" style="flex: 1; min-width: 250px;">
@@ -1565,7 +1565,7 @@
   <!-- Header -->
   <div class="x-review-header" style="display: flex; justify-content: space-between; align-items: center; margin-bottom: 25px;">
     <div class="x-review-header__htitle">
-      <h2 style="font-size: 1.6rem; font-weight: 700; color: #7BCBFF; margin: 0;">Rating & Ulasan Pemain HURA500</h2>
+      <h2 style="font-size: 1.6rem; font-weight: 700; color: #7BCBFF; margin: 0;">Rating & Ulasan Pemain RAJA01</h2>
     </div>
     <div class="x-review-header__learn-more">
       <a href="#" style="color: #7BCBFF; text-decoration: underline; font-weight: 500;">Pelajari Lebih Lanjut</a>
@@ -1675,7 +1675,7 @@
   <div class='x-review-details__head' style="display: flex; justify-content: space-between; align-items: center; margin-bottom: 20px;">
     <h3 class='x-review-details__title' style="font-size: 1.5rem; font-weight: 700; color:#333;">Most Relevant Reviews</h3>
     <div class='x-review-details__allreviews'>
-      <a href='https://tangereapp.com/amplifying-the-voice-of-the-filipino/' class='ux-action' style="color:#7BCBFF; font-weight:500; text-decoration:none;">See all 79,316 reviews</a>
+      <a href='https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/' class='ux-action' style="color:#7BCBFF; font-weight:500; text-decoration:none;">See all 79,316 reviews</a>
     </div>
   </div>
 
@@ -1702,7 +1702,7 @@
       <div class='x-review-section__r' style="flex:1; display:flex; flex-direction:column; gap:8px;">
         <h4 class='x-review-section__title' style="font-weight:600; color:#333;">Google</h4>
         <div class='x-review-section__content' style="color:#555; font-size:0.95rem;">
-          “Main di <strong>HURA500</strong> itu seru banget! Withdraw cepat, jackpot harian masuk tanpa delay, dan sistem taruhan aman serta adil.”
+          “Main di <strong>RAJA01</strong> itu seru banget! Withdraw cepat, jackpot harian masuk tanpa delay, dan sistem taruhan aman serta adil.”
         </div>
       </div>
     </li>
@@ -1755,8 +1755,8 @@
 
     <div class='x-prp-carousel' data-testid='x-prp-carousel'>
   <div class='section-title' style="display:flex; justify-content:space-between; align-items:center; margin-bottom:15px;">
-    <h2 class='section-title__title' style="font-size:1.5rem; font-weight:700; color:#333;">Photos from HURA500 Reviews</h2>
-    <a href='https://tangereapp.com/amplifying-the-voice-of-the-filipino/' class='section-title__cta' style="font-size:0.95rem; color:#7BCBFF; text-decoration:none;">See all</a>
+    <h2 class='section-title__title' style="font-size:1.5rem; font-weight:700; color:#333;">Photos from RAJA01 Reviews</h2>
+    <a href='https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/' class='section-title__cta' style="font-size:0.95rem; color:#7BCBFF; text-decoration:none;">See all</a>
   </div>
   
   <div class='carousel' aria-roledescription='Carousel' role='group' style="position:relative; display:flex; align-items:center;">
@@ -1769,9 +1769,9 @@
     <div class='carousel__viewport' style="overflow-x:auto; scroll-snap-type:x mandatory; display:flex; gap:16px; padding:10px 40px;">
       <!-- Carousel Item 1 -->
       <div class='x-card' style="flex:0 0 auto; width:200px; border-radius:12px; box-shadow:0 2px 8px rgba(0,0,0,0.1); background:#fff; scroll-snap-align:start;">
-        <img src='https://ik.imagekit.io/walaue/hura500.jpg' alt='HURA500 Slot Review' style="width:100%; border-top-left-radius:12px; border-top-right-radius:12px;">
+        <img src='https://ik.imagekit.io/walaue/RAJA01S.jpg' alt='RAJA01 Slot Review' style="width:100%; border-top-left-radius:12px; border-top-right-radius:12px;">
         <div style="padding:10px;">
-          <h3 style="font-size:1rem; font-weight:600; margin-bottom:5px;">HURA500 Slot Gacor</h3>
+          <h3 style="font-size:1rem; font-weight:600; margin-bottom:5px;">RAJA01 Slot Gacor</h3>
           <div class="star-rating" style="display:flex; gap:2px; margin-bottom:5px;">
             <svg width="16" height="16" fill="#7BCBFF" viewBox="0 0 16 16"><path d="M8.596 1.928a.625.625 0 0 0-1.19 0L6.055 6.136H1.62a.625.625 0 0 0-.346 1.146l3.56 2.364-1.366 4.035a.625.625 0 0 0 .953.71L8 11.862l3.578 2.528a.625.625 0 0 0 .953-.71l-1.366-4.036 3.55-2.364a.625.625 0 0 0-.346-1.145H9.955l-1.36-4.207Z"/></svg>
             <svg width="16" height="16" fill="#7BCBFF" viewBox="0 0 16 16"><path d="M8.596 1.928a.625.625 0 0 0-1.19 0L6.055 6.136H1.62a.625.625 0 0 0-.346 1.146l3.56 2.364-1.366 4.035a.625.625 0 0 0 .953.71L8 11.862l3.578 2.528a.625.625 0 0 0 .953-.71l-1.366-4.036 3.55-2.364a.625.625 0 0 0-.346-1.145H9.955l-1.36-4.207Z"/></svg>
@@ -1785,7 +1785,7 @@
 
       <!-- Carousel Item 2 -->
       <div class='x-card' style="flex:0 0 auto; width:200px; border-radius:12px; box-shadow:0 2px 8px rgba(0,0,0,0.1); background:#fff; scroll-snap-align:start;">
-        <img src='https://ik.imagekit.io/walaue/hura500.jpg' alt='HURA500 Live Result' style="width:100%; border-top-left-radius:12px; border-top-right-radius:12px;">
+        <img src='https://ik.imagekit.io/walaue/RAJA01S.jpg' alt='RAJA01 Live Result' style="width:100%; border-top-left-radius:12px; border-top-right-radius:12px;">
         <div style="padding:10px;">
           <h3 style="font-size:1rem; font-weight:600; margin-bottom:5px;">SLOT ONLINE TERPERCAYA</h3>
           <div class="star-rating" style="display:flex; gap:2px; margin-bottom:5px;">
@@ -1801,9 +1801,9 @@
 
       <!-- Carousel Item 3 -->
       <div class='x-card' style="flex:0 0 auto; width:200px; border-radius:12px; box-shadow:0 2px 8px rgba(0,0,0,0.1); background:#fff; scroll-snap-align:start;">
-        <img src='https://ik.imagekit.io/walaue/hura500.jpg' alt='HURA500 Jackpot Review' style="width:100%; border-top-left-radius:12px; border-top-right-radius:12px;">
+        <img src='https://ik.imagekit.io/walaue/RAJA01S.jpg' alt='RAJA01 Jackpot Review' style="width:100%; border-top-left-radius:12px; border-top-right-radius:12px;">
         <div style="padding:10px;">
-          <h3 style="font-size:1rem; font-weight:600; margin-bottom:5px;">HURA500 Jackpot Winner</h3>
+          <h3 style="font-size:1rem; font-weight:600; margin-bottom:5px;">RAJA01 Jackpot Winner</h3>
           <div class="star-rating" style="display:flex; gap:2px; margin-bottom:5px;">
             <svg width="16" height="16" fill="#7BCBFF" viewBox="0 0 16 16"><path d="M8.596 1.928a.625.625 0 0 0-1.19 0L6.055 6.136H1.62a.625.625 0 0 0-.346 1.146l3.56 2.364-1.366 4.035a.625.625 0 0 0 .953.71L8 11.862l3.578 2.528a.625.625 0 0 0 .953-.71l-1.366-4.036 3.55-2.364a.625.625 0 0 0-.346-1.145H9.955l-1.36-4.207Z"/></svg>
             <svg width="16" height="16" fill="#7BCBFF" viewBox="0 0 16 16"><path d="M8.596 1.928a.625.625 0 0 0-1.19 0L6.055 6.136H1.62a.625.625 0 0 0-.346 1.146l3.56 2.364-1.366 4.035a.625.625 0 0 0 .953.71L8 11.862l3.578 2.528a.625.625 0 0 0 .953-.71l-1.366-4.036 3.55-2.364a.625.625 0 0 0-.346-1.145H9.955l-1.36-4.207Z"/></svg>
@@ -1817,9 +1817,9 @@
 
       <!-- Carousel Item 4 -->
       <div class='x-card' style="flex:0 0 auto; width:200px; border-radius:12px; box-shadow:0 2px 8px rgba(0,0,0,0.1); background:#fff; scroll-snap-align:start;">
-        <img src='https://ik.imagekit.io/walaue/hura500.jpg' alt='HURA500 Trusted Review' style="width:100%; border-top-left-radius:12px; border-top-right-radius:12px;">
+        <img src='https://ik.imagekit.io/walaue/RAJA01S.jpg' alt='RAJA01 Trusted Review' style="width:100%; border-top-left-radius:12px; border-top-right-radius:12px;">
         <div style="padding:10px;">
-          <h3 style="font-size:1rem; font-weight:600; margin-bottom:5px;">Trusted HURA500 Site</h3>
+          <h3 style="font-size:1rem; font-weight:600; margin-bottom:5px;">Trusted RAJA01 Site</h3>
           <div class="star-rating" style="display:flex; gap:2px; margin-bottom:5px;">
             <svg width="16" height="16" fill="#7BCBFF" viewBox="0 0 16 16"><path d="M8.596 1.928a.625.625 0 0 0-1.19 0L6.055 6.136H1.62a.625.625 0 0 0-.346 1.146l3.56 2.364-1.366 4.035a.625.625 0 0 0 .953.71L8 11.862l3.578 2.528a.625.625 0 0 0 .953-.71l-1.366-4.036 3.55-2.364a.625.625 0 0 0-.346-1.145H9.955l-1.36-4.207Z"/></svg>
             <svg width="16" height="16" fill="#7BCBFF" viewBox="0 0 16 16"><path d="M8.596 1.928a.625.625 0 0 0-1.19 0L6.055 6.136H1.62a.625.625 0 0 0-.346 1.146l3.56 2.364-1.366 4.035a.625.625 0 0 0 .953.71L8 11.862l3.578 2.528a.625.625 0 0 0 .953-.71l-1.366-4.036 3.55-2.364a.625.625 0 0 0-.346-1.145H9.955l-1.36-4.207Z"/></svg>
@@ -1958,25 +1958,25 @@
 
 
     <!-- GANTI IMAGE -->
-    <img src="https://ik.imagekit.io/walaue/hura500.jpg" alt="HURA500">
+    <img src="https://ik.imagekit.io/walaue/RAJA01S.jpg" alt="RAJA01">
 
     <!-- RUNNING TEXT -->
     <div class="running-text-container">
       <div class="running-track">
-        <span>HURA500 • SLOT GACOR • AKSES MUDAH • By PEMINAT GOOGLE</span>
-        <span>HURA500 • SLOT GACOR • AKSES MUDAH • By PEMINAT GOOGLE</span>
+        <span>RAJA01 • SLOT GACOR • AKSES MUDAH • By PEMINAT GOOGLE</span>
+        <span>RAJA01 • SLOT GACOR • AKSES MUDAH • By PEMINAT GOOGLE</span>
       </div>
     </div>
 
     <!-- BUTTON -->
     <div class="btn-area">
       <button class="popup-btn login-btn"
-        onclick="window.location.href='https://hurahuras.pages.dev/'">
+        onclick="window.location.href='https://sraja01.pages.dev/'">
         Login Sekarang
       </button>
       
       <button class="popup-btn daftar-btn"
-        onclick="window.location.href='https://hurahuras.pages.dev/'">
+        onclick="window.location.href='https://sraja01.pages.dev/'">
         Daftar VIP
       </button>
     </div>
@@ -1995,15 +1995,15 @@ function closePopup(){
 {
   "@context": "https://schema.org",
   "@type": "WebPage",
-  "name": "HURA500 | Link Login Alternatif Terbaru OJOL 500 RTP Peluang Menang tertinggi 2026",
-  "url": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/",
+  "name": "RAJA01 😎 Platform Resmi keluarga online Game Togel dan Slot Super Gacor 2026",
+  "url": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/",
   "mainEntity": {
     "@type": "Product",
-    "name": "HURA500 | Link Login Alternatif Terbaru OJOL 500 RTP Peluang Menang tertinggi 2026",
-    "image": "https://ik.imagekit.io/walaue/hura500.jpg",
+    "name": "RAJA01 😎 Platform Resmi keluarga online Game Togel dan Slot Super Gacor 2026",
+    "image": "https://ik.imagekit.io/walaue/RAJA01S.jpg",
     "brand": {
       "@type": "Brand",
-      "name": "HURA500"
+      "name": "RAJA01"
     },
     "aggregateRating": {
       "@type": "AggregateRating",
@@ -2018,8 +2018,8 @@ function closePopup(){
           "name": "Google Reels"
         },
         "datePublished": "2025-09-19",
-        "name": "HURA500 ▸ Google",
-        "reviewBody": "Main di HURA500 itu seru banget! Withdraw cepat, jackpot harian masuk tanpa delay, dan sistem taruhan aman serta adil.",
+        "name": "RAJA01 ▸ Google",
+        "reviewBody": "Main di RAJA01 itu seru banget! Withdraw cepat, jackpot harian masuk tanpa delay, dan sistem taruhan aman serta adil.",
         "reviewRating": {
           "@type": "Rating",
           "ratingValue": "5",
@@ -2034,7 +2034,7 @@ function closePopup(){
           "name": "Google Thread"
         },
         "datePublished": "2024-02-17",
-        "name": "HURA500 ▸ Google Thread",
+        "name": "RAJA01 ▸ Google Thread",
         "reviewBody": "Slotnya lengkap, info RTP-nya update terus. Lumayan ngebantu sebelum main.",
         "reviewRating": {
           "@type": "Rating",
@@ -2050,7 +2050,7 @@ function closePopup(){
           "name": "Google Reels"
         },
         "datePublished": "2025-04-24",
-        "name": "HURA500 ▸ Google Reels",
+        "name": "RAJA01 ▸ Google Reels",
         "reviewBody": "Aksesnya gampang, link alternatifnya juga aman. Nggak ribet pas mau login.",
         "reviewRating": {
           "@type": "Rating",
@@ -2070,9 +2070,9 @@ function closePopup(){
   <div id="gh-fwrap"></div>
   <div class="adBanner ad ads adsbox doubleclick ad-placement ad-placeholder adbadge BannerAd" style="height:1px;overflow:hidden;" id="gh-bulletin-det"></div>
   <div id="ghw-static-footer" style="display:none">
-    <footer style="font-family:&#39;Market Sans&#39;;color:#41413f;font-size:11px">Copyright © 1995-2025 SEO BELZINZ. All Rights Reserved. <a style="color:#707070;" href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">Accessibility</a>, <a style="color:#707070;" href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">User Agreement</a>, <a style="color:#707070;" href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">Privacy</a>, <a style="color:#707070;" href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">Consumer Health Data</a>, <a style="color:#707070;" href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">Payments Terms of Use</a>, <a style="color:#707070;" href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">Cookies</a>, <a style="color:#707070;" href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">CA Privacy Notice</a>, <a style="color:#707070;" href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">Your Privacy Choices</a> and <a style="color:#707070;" href="https://tangereapp.com/amplifying-the-voice-of-the-filipino/">AdChoice</a></footer>
+    <footer style="font-family:&#39;Market Sans&#39;;color:#41413f;font-size:11px">Copyright © 1995-2025 SEO BELZINZ. All Rights Reserved. <a style="color:#707070;" href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">Accessibility</a>, <a style="color:#707070;" href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">User Agreement</a>, <a style="color:#707070;" href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">Privacy</a>, <a style="color:#707070;" href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">Consumer Health Data</a>, <a style="color:#707070;" href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">Payments Terms of Use</a>, <a style="color:#707070;" href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">Cookies</a>, <a style="color:#707070;" href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">CA Privacy Notice</a>, <a style="color:#707070;" href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">Your Privacy Choices</a> and <a style="color:#707070;" href="https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/">AdChoice</a></footer>
   </div>
-  <script>(function(){let GH=window.GH;const f=document.getElementById("glbfooter");const fw=document.getElementById("gh-fwrap");if(f&&fw){fw.appendChild(f);f.removeAttribute("style");if(GH&&GH.__private){GH.__private.ghftrmoved=true}};if(GH&&GH.__private&&GH.__private.ghftrmoved){GH.__private.ghftr={"legal":{"FOOTERLINKS":[{"name":"LINK","url":"https://tangereapp.com/amplifying-the-voice-of-the-filipino/","txt":"Accessibility","sp":"m571.l170738"},{"name":"LINK","url":"https://tangereapp.com/amplifying-the-voice-of-the-filipino/","txt":"User Agreement","sp":"m571.l170737"},{"name":"LINK","url":"https://tangereapp.com/amplifying-the-voice-of-the-filipino/","txt":"Privacy","sp":"m571.l170739"},{"name":"LINK","url":"https://tangereapp.com/amplifying-the-voice-of-the-filipino/","txt":"Consumer Health Data","sp":"m571.l182077"},{"name":"LINK","url":"https://tangereapp.com/amplifying-the-voice-of-the-filipino/","txt":"Payments Terms of Use","sp":"m571.l170740"},{"name":"LINK","url":"https://tangereapp.com/amplifying-the-voice-of-the-filipino/","txt":"Cookies","sp":"m571.l170741"},{"name":"LINK","url":"https://tangereapp.com/amplifying-the-voice-of-the-filipino/","txt":"CA Privacy Notice","sp":"m571.l174785"},{"name":"LINK","url":"https://tangereapp.com/amplifying-the-voice-of-the-filipino/","txt":"Your Privacy Choices","css":"gf-privacy-choises","sp":"m571.l170742"},{"name":"LINK","url":"https://tangereapp.com/amplifying-the-voice-of-the-filipino/","txt":"AdChoice","sp":"m571.l170743"}]},"smallLinks":{"FOOTERLINKS":[{"name":"LINK","url":"https://www.ebayinc.com","txt":"About eBay","sp":"m571.l2602"},{"name":"LINK","url":"https://tangereapp.com/amplifying-the-voice-of-the-filipino/","txt":"Announcements","sp":"m571.l2935"},{"name":"LINK","url":"https://tangereapp.com/amplifying-the-voice-of-the-filipino/","txt":"Community","sp":"m571.l1540"},{"name":"LINK","url":"https://tangereapp.com/amplifying-the-voice-of-the-filipino/","txt":"Security Center","sp":"m571.l2616"},{"name":"LINK","url":"https://tangereapp.com/amplifying-the-voice-of-the-filipino/","txt":"Seller Center","sp":"m571.l1613"},{"name":"LINK","url":"https://tangereapp.com/amplifying-the-voice-of-the-filipino/","txt":"Policies","sp":"m571.l2604"},{"name":"LINK","url":"https://tangereapp.com/amplifying-the-voice-of-the-filipino/","txt":"Affiliates","sp":"m571.l3947"},{"name":"LINK","url":"https://tangereapp.com/amplifying-the-voice-of-the-filipino/","txt":"LIVECHAT","sp":"m571.l1545"},{"name":"LINK","url":"https://tangereapp.com/amplifying-the-voice-of-the-filipino/","txt":"Site Map","sp":"m571.l2909"}]}}};document.dispatchEvent(new CustomEvent('gh-showfooter'));const ch=document.querySelector("#gh.gh-header");if(!ch){document.getElementById("ghw-static-footer").removeAttribute("style");}})();</script>
+  <script>(function(){let GH=window.GH;const f=document.getElementById("glbfooter");const fw=document.getElementById("gh-fwrap");if(f&&fw){fw.appendChild(f);f.removeAttribute("style");if(GH&&GH.__private){GH.__private.ghftrmoved=true}};if(GH&&GH.__private&&GH.__private.ghftrmoved){GH.__private.ghftr={"legal":{"FOOTERLINKS":[{"name":"LINK","url":"https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/","txt":"Accessibility","sp":"m571.l170738"},{"name":"LINK","url":"https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/","txt":"User Agreement","sp":"m571.l170737"},{"name":"LINK","url":"https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/","txt":"Privacy","sp":"m571.l170739"},{"name":"LINK","url":"https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/","txt":"Consumer Health Data","sp":"m571.l182077"},{"name":"LINK","url":"https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/","txt":"Payments Terms of Use","sp":"m571.l170740"},{"name":"LINK","url":"https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/","txt":"Cookies","sp":"m571.l170741"},{"name":"LINK","url":"https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/","txt":"CA Privacy Notice","sp":"m571.l174785"},{"name":"LINK","url":"https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/","txt":"Your Privacy Choices","css":"gf-privacy-choises","sp":"m571.l170742"},{"name":"LINK","url":"https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/","txt":"AdChoice","sp":"m571.l170743"}]},"smallLinks":{"FOOTERLINKS":[{"name":"LINK","url":"https://www.ebayinc.com","txt":"About eBay","sp":"m571.l2602"},{"name":"LINK","url":"https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/","txt":"Announcements","sp":"m571.l2935"},{"name":"LINK","url":"https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/","txt":"Community","sp":"m571.l1540"},{"name":"LINK","url":"https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/","txt":"Security Center","sp":"m571.l2616"},{"name":"LINK","url":"https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/","txt":"Seller Center","sp":"m571.l1613"},{"name":"LINK","url":"https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/","txt":"Policies","sp":"m571.l2604"},{"name":"LINK","url":"https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/","txt":"Affiliates","sp":"m571.l3947"},{"name":"LINK","url":"https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/","txt":"LIVECHAT","sp":"m571.l1545"},{"name":"LINK","url":"https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/","txt":"Site Map","sp":"m571.l2909"}]}}};document.dispatchEvent(new CustomEvent('gh-showfooter'));const ch=document.querySelector("#gh.gh-header");if(!ch){document.getElementById("ghw-static-footer").removeAttribute("style");}})();</script>
   <!-- RcmdId Footer,RlogId t6diiebinbbacut%60ddlkr%3D9bjhadjofdbbqrce%60jhs.3de5fb161%3F*w%60ut02%2B3svqk-199654419a2-0x804 -->
   <!-- SiteId: 0, Environment: production, AppName: globalheaderweb, PageId: 4479693 -->
   <!-- ghw_reverted -->
@@ -2083,7 +2083,7 @@ function closePopup(){
   <script src='https://ir.ebaystatic.com/cr/v/c01/code.jquery.com_jquery-3.7.1.min.js'></script>
   <script crossorigin type="text/javascript" src="https://ir.ebaystatic.com/rs/c/globalheaderweb/runtime.6e0b9303.js"></script>
   <script crossorigin type="text/javascript" src="https://ir.ebaystatic.com/rs/c/globalheaderweb/index_lcNW.602e8805.js"></script>
-  <script type="text/javascript">$mwp_globalheaderweb="https://ir.ebaystatic.com/rs/c/globalheaderweb/";$globalheaderweb_C=(window.$globalheaderweb_C||[]).concat({"o":{"g":{"gh_lang":"en-ID","gh_siteid":900,"gh_pageid":"2322090","gh_searchAutocomplete":{"acNoSuggestions":"No suggestions","acHideSuggestions":"Hide eBay suggestions","acShowSuggestions":"Show search suggestions","acPopularProducts":"Popular Products","acSuggCategory":"{suggestion} <u>–\u003C/u> <i>{category}\u003C/i>","acCatalog":"<a href=\"https://www.ebay.com/ctg/?_pid=#P#&amp;_trksid=\"/>","acAllCategories":"All Categories","acViewAllSaved":"<a href=\"/mye/myebay/savedsearches\">View All Saved<em>&gt;\u003C/em>\u003C/a>","acSuggCategoryIn":"{suggestion} <u>–\u003C/u> <u>in\u003C/u> <i>{category}\u003C/i>","acSuggCategorySaved":"\"{suggestion} <u>in\u003C/u> <i>{category}\u003C/i><em>|\u003C/em> <span>Saved\u003C/span>","acSuggSaved":"{suggestion} <span>Saved\u003C/span>","acSuggCategoryRecent":"{suggestion} <u>in\u003C/u> <i>{category}\u003C/i><em>|\u003C/em> <span>Recent\u003C/span>","acSuggRecent":"{suggestion} <span>Recent\u003C/span>","acSuggStore":"{suggestion} <u>–\u003C/u> <u>in\u003C/u><i>eBay Stores\u003C/i>","acSuggCategoryInAria":"{suggestion} in {category}","acViewAllSavedAria":"View All Saved","acHedSavedSearch":"Saved searches","acHedSavedSeller":"Saved sellers","acHedRecentSearch":"Recent searches","acHedPopularSearch":"Popular searches","acResultsAccessibility":"{count} results available; to navigate, use up and down arrow keys or swipe left and right on touch devices.","acNewnessIndicator":"new results available."},"gh_content":{"greetingSignedOutUnrecognized":"Hi! <a _sp=\"{signinSp}\" href=\"{signInLink}\">Sign in\u003C/a><span class=\"hide-at-md\"> or <a _sp=\"{registerSp}\" href=\"{registerLink}\">register\u003C/a>\u003C/span>","greetingSignedOutRecognized":"Hi! (<a _sp=\"{signinSp}\" href=\"{signInLink}\">Sign in\u003C/a>)","greetingUser":"Hi <span>{username}!\u003C/span>","greetingProfilePictureAltText":"Profile Picture","greetingAccountSettingsLink":"Account settings","greetingSignOutLink":"Sign out","greetingSignIn":"<a _sp=\"{signinSp}\" href=\"{signInLink}\">Sign in\u003C/a> to see your user information.","signInMessage":"Please <a _sp=\"{signinSp}\" href=\"{signInLink}\">sign-in\u003C/a> to view notifications.","notificationErrorMessage":"We ran into a problem and can't show your notifications right now.","flyoutGenericError":"There was an error. Please try again later.","watchlist":"Watchlist","loading":"Loading...","cartEmpty":"Your shopping cart is empty","cartFull":"Your shopping cart contains {cartCount} items","AR":"Argentina","AU":"Australia","AT":"Austria","BY":"Belarus","BE":"Belgium","BO":"Bolivia","BR":"Brazil","CA":"Canada","CL":"Chile","CN":"China","CO":"Colombia","CR":"Costa Rica","DO":"Dominican Republic","EC":"Ecuador","SV":"El Salvador","FR":"France","DE":"Germany","GT":"Guatemala","HN":"Honduras","HK":"Hong Kong","IN":"India","IE":"Ireland","IL":"Israel","IT":"Italy","JP":"Japan","KZ":"Kazakhstan","KR":"Korea","MY":"Malaysia","MX":"Mexico","NL":"Netherlands","NZ":"New Zealand","NI":"Nicaragua","PA":"Panama","PY":"Paraguay","PE":"Peru","PH":"Philippines","PL":"Poland","PT":"Portugal","PR":"Puerto Rico","RU":"Russia","SG":"Singapore","ES":"Spain","CH":"Switzerland","TW":"Taiwan","TR":"Turkey","GB":"United Kingdom","UY":"Uruguay","US":"United States","VE":"Venezuela","star_1":"Yellow star for feedback score from 10 to 49","star_2":"Blue star for feedback score from 50 to 99","star_3":"Turquoise star for feedback score from 100 to 499","star_4":"Purple star for feedback score from 500 to 999","star_5":"Red star for feedback score from 1,000 to 4,999","star_6":"Green star for feedback score from 5,000 to 9,999","star_7":"Yellow shooting star for feedback score from 10,000 to 24,999","star_8":"Turquoise shooting star for feedback score from 25,000 to 49,999","star_9":"Purple shooting star for feedback score from 50,000 to 99,999","star_10":"Red shooting star for feedback score from 100,000 to 499,999","star_11":"Green shooting star for feedback score from 500,000 to 999,999","star_12":"Silver shooting star for feedback score from 1,000,000 or more","fsom_text":"Switch to mobile site","footerCopyrightText":"Copyright © 1995-{currentYear} SEO BELZINZ. All Rights Reserved.","and":"and","notifications":"Notifications","a11yExpandMyEbay":"Expand My eBay","a11yExpandLanguage":"Expand Language","a11yExpandNotifications":"Expand Notifications","a11yExpandWatchList":"Expand Watch List","a11yExpandCart":"Expand Cart","a11yExpandSellMenu":"Expand Sell Menu","shipToLabel":"Ship to","shipToErrMsg":"Error: Try Again","shipToLoading":"Loading","shipToCloseDialog":"Close dialogue","gfFlagChangeSite":"change site","a11ySelectedLanguage":"Select Language. Current: "},"gh_gadgetDomain":"https://www.ebay.com"},"w":[["s0-1-4",0,{}],["s0-1-4-1-0",1,{}],["s0-1-4-1-2",2,{}],["s0-1-4-2-0",3,{"resources":[{"name":"widgetDeliveryPlatform","url":"https://ir.ebaystatic.com/cr/v/c1/globalheader_widget_platform__v2-b70676194b.js"},{"name":"behaviorJsCollection","url":"https://ir.ebaystatic.com/cr/v/c01/aW5ob3VzZWpzMTc0MTMwNzcyODM5Ng==-1.0.0.min.js"},{"name":"autoTrackingWidget","url":"https://ir.ebaystatic.com/cr/v/c01/bf165130-1c0e-11f0-9cd2-0242ac120002.min.js"},{"name":"webResourceTracker","url":"https://ir.ebaystatic.com/rs/v/mjgerh5fmy51nnbwjoml1g1juqs.js"},{"name":"inflowHelp","url":"/ifh/inflowcomponent?callback=Inflow.cb"}]},{"f":1}],["s0-1-4-3",4,{},{"f":1}],["s0-1-4-4",5,{},{"f":1}],["s0-1-4-5",6,{}],["s0-1-4-8-3[0]-0",7,{"links":{"SIGN_IN_DEFAULT":{"url":"https://hurahuras.pages.dev/","_sp":"m570.l1524"},"SIGN_IN_RECOGNIZED":{"url":"https://hurahuras.pages.dev/","_sp":"m570.l2620"},"REGISTER":{"url":"https://signup.ebay.com/pa/crte","_sp":"m570.l2621"},"SIGN_OUT":{"url":"https://hurahuras.pages.dev/","_sp":"m570.l2622"},"MY_COLLECTIONS":{"url":"https://www.ebay.com/cln/_mycollections","_sp":"m570.l4461"},"ACCOUNT_SETTINGS":{"url":"https://accountsettings.ebay.com/uas","_sp":"m570.l3399"},"PROFILE_MY_WORLD":{"url":"https://tangereapp.com/amplifying-the-voice-of-the-filipino/","_sp":"m570.l3331"},"PROFILE_FEEDBACK":{"url":"https://feedback.ebay.com/ws/eBayISAPI.dll?ViewFeedback2&userid=@@","_sp":"m570.l3333"}},"isMyeBayNavPhase1Enabled":false},{"f":1,"s":{"server":true,"user":{"isAuthenticatedUser":false,"isRecognizedUser":false},"loaded":false,"error":false,"errorCode":""}}],["s0-1-4-8-3[0]-0-8",8,{},{"f":1,"s":{"signInURL":"https://hurahuras.pages.dev/","registerationURL":"https://signup.ebay.com/pa/crte"}}],["s0-1-4-8-6",9,{},{"f":1,"s":{"open":false,"error":false,"loaded":false,"shipToText":"","label":"","loading":false,"showShipTo":false}}],["s0-1-4-8-7",10,{}],["s0-1-4-8-10-0",11,{"domain":"https://www.ebay.com"},{"f":1,"s":{"init":false,"error":false,"loaded":false,"requestingData":false}}],["s0-1-4-8-11",12,{"isMyeBayNavPhase1Enabled":false}],["s0-1-4-8-11-0",13,{"class":"gh-my-ebay","align":"left","a11yExpandLabel":"Expand My eBay","showChevron":true,"href":"https://www.ebay.com/mys/home?source=GBH","sp":"m570.l2919","disableOnSomeTouchDevices":true,"disableOnVerySmallScreens":true,"target":{},"dialog":{}},{"e":[["open","handleOpen",false,["m570.l2919"]]],"f":1,"p":"s0-1-4-8-11","s":{"isActive":false},"u":["linkOnly"]}],["s0-1-4-8-12-0",14,{"signInURL":"https://hurahuras.pages.dev/"},{"f":1,"s":{"notificationCount":0,"error":false,"isSignedIn":false,"loading":false,"loaded":false}}],["s0-1-4-8-13-1",15,{"model":{"url":"https://cart.ebay.com","sp":"m570.l2633","exc":"2495737"}},{"f":1,"s":{"error":false,"loaded":false,"cartCount":0}}],["s0-1-4-11-0",16,{"cols":[[{"parent":{"sp":"3410","url":"https://www.ebay.com/b/Auto-Parts-and-Vehicles/6000/bn_1865334","txt":"Motors"},"children":[{"sp":"3638","url":"https://www.ebay.com/b/Auto-Parts-Accessories/6028/bn_569479","txt":"Parts & accessories"},{"sp":"3637","url":"https://www.ebay.com/b/Cars-Trucks/6001/bn_1865117","txt":"Cars & trucks"},{"sp":"3636","url":"https://www.ebay.com/b/Motorcycles/6024/bn_1865434","txt":"Motorcycles"},{"sp":"3639","url":"https://www.ebay.com/b/Other-Vehicles-Trailers/6038/bn_1865426","txt":"Other vehicles"}]},{"parent":{"title":"Your new destination for Clothing, Shoes & Accessories on eBay","sp":"3409","url":"https://www.ebay.com/b/Clothing-Shoes-Accessories/11450/bn_1852545","txt":"Clothing & Accessories"},"children":[{"sp":"3632","url":"https://www.ebay.com/b/Women/260010/bn_7116391826","txt":"Women"},{"sp":"3633","url":"https://www.ebay.com/b/Men/260012/bn_7116419459","txt":"Men"},{"sp":"3634","url":"https://www.ebay.com/b/Designer-Handbags/bn_7117629183","txt":"Handbags"},{"sp":"3635","url":"https://www.ebay.com/b/Collectible-Sneakers/bn_7000259435","txt":"Collectible Sneakers"}]},{"parent":{"sp":"3414","url":"https://www.ebay.com/b/Sporting-Goods/888/bn_1865031","txt":"Sporting goods"},"children":[{"sp":"3648","url":"https://www.ebay.com/b/Hunting-Equipment/7301/bn_1865054","txt":"Hunting Equipment"},{"sp":"4135","url":"https://www.ebay.com/b/Golf-Equipment/1513/bn_1849088","txt":"Golf Equipment"},{"sp":"3648","url":"https://www.ebay.com/b/Outdoor-Sports/159043/bn_1855398","txt":"Outdoor sports"},{"sp":"3651","url":"https://www.ebay.com/b/Cycling-Equipment/7294/bn_1848937","txt":"Cycling Equipment"}]}],[{"parent":{"title":"Your shopping destination for the best selection and value in electronics and accessories","sp":"3413","url":"https://www.ebay.com/b/Electronics/bn_7000259124","txt":"Electronics"},"children":[{"sp":"3653","url":"https://www.ebay.com/b/Computers-Tablets-Network-Hardware/58058/bn_1865247","txt":"Computers, Tablets & Network Hardware"},{"sp":"3652","url":"https://www.ebay.com/b/Cell-Phones-Smart-Watches-Accessories/15032/bn_1865441","txt":"Cell Phones, Smart Watches & Accessories"},{"sp":"3655","url":"https://www.ebay.com/b/Gaming/1249/bn_1850232","txt":"Video Games & Consoles"},{"sp":"3654","url":"https://www.ebay.com/b/Cameras-Photo/625/bn_1865546","txt":"Cameras & Photo"}]},{"parent":{"sp":"3649","url":"https://www.ebay.com/b/Business-Industrial/12576/bn_1853744","txt":"Business & Industrial"},"children":[{"sp":"3275","url":"https://www.ebay.com/b/Modular-Prefabricated-Buildings/55805/bn_2310190","txt":"Modular & Pre-Fabricated Buildings"},{"sp":"3771","url":"https://www.ebay.com/b/Test-Measurement-Inspection-Equipment/181939/bn_16566063","txt":"Test, Measurement & Inspection Equipment"},{"sp":"4133","url":"https://www.ebay.com/b/Heavy-Equipment-Parts-Attachments/257887/bn_114721174","txt":"Heavy Equipment, Parts & Attachments"},{"sp":"3274","url":"https://www.ebay.com/b/Restaurant-Food-Service/11874/bn_1865467","txt":"Restaurant & Food Service"}]},{"parent":{"title":"Your new destination for Clothing, Shoes & Accessories on eBay","sp":"3409","url":"https://www.ebay.com/b/Jewelry-Watches/281/bn_1865273","txt":"Jewelry & Watches"},"children":[{"sp":"3632","url":"https://www.ebay.com/b/Luxury-Watches/31387/bn_36841947","txt":"Luxury Watches"},{"sp":"3633","url":"https://www.ebay.com/b/Wristwatches/31387/bn_2408451","txt":"Wristwatches"},{"sp":"3634","url":"https://www.ebay.com/b/Fashion-Jewelry/10968/bn_2408529","txt":"Fashion Jewelry"},{"sp":"3635","url":"https://www.ebay.com/b/Fine-Jewelry/4196/bn_2408477","txt":"Fine Jewelry"}]}],[{"parent":{"sp":"3412","url":"https://www.ebay.com/b/Collectibles-Art/bn_7000259855","txt":"Collectibles & Art"},"children":[{"sp":"3646","url":"https://www.ebay.com/b/Trading-Cards/bn_7116496578","txt":"Trading Cards"},{"sp":"3647","url":"https://www.ebay.com/b/Collectibles/1/bn_1858810","txt":"Collectibles"},{"sp":"4131","url":"https://www.ebay.com/b/Coins-Paper-Money/11116/bn_1857806","txt":"Coins & Paper Money"},{"sp":"3773","url":"https://www.ebay.com/b/Sports-MemorGoogle Reelslia-Fan-Shop-Sports-Cards/64482/bn_1857919","txt":"Sports MemorGoogle Reelslia"}]},{"parent":{"sp":"3412","url":"https://www.ebay.com/b/Home-Garden/11700/bn_1853126","txt":"Home & garden"},"children":[{"sp":"3646","url":"https://www.ebay.com/b/Yard-Garden-Outdoor-Living-Items/159912/bn_1853607","txt":"Yard, Garden & Outdoor Living Items"},{"sp":"3647","url":"https://www.ebay.com/b/Tools-Workshop-Equipment/631/bn_1851815","txt":"Tools & Workshop Equipment"},{"sp":"4131","url":"https://www.ebay.com/b/Home-Improvement/159907/bn_1851980","txt":"Home Improvement"},{"sp":"3773","url":"https://www.ebay.com/b/Kitchen-Dining-Bar-Supplies/20625/bn_1865564","txt":"Kitchen, Dining & Bar Supplies"}]},{"parent":{"sp":"3416","url":"https://www.ebay.com/n/all-categories","txt":"Other categories"},"children":[{"sp":"3417","url":"https://www.ebay.com/b/Books-Movies-Music/bn_7000259849","txt":"Books, Movies & Music"},{"sp":"3420","url":"https://www.ebay.com/b/Toys-Hobbies/220/bn_1865497","txt":"Toys & Hobbies"},{"sp":"3772","url":"https://www.ebay.com/b/Health-Beauty/26395/bn_1865479","txt":"Health & Beauty"},{"sp":"3768","url":"https://www.ebay.com/b/Baby-Essentials/2984/bn_1854104","txt":"Baby Essentials"}]}]],"footer":[{"parent":{"id":"gh-shop-by-brand","sp":"45017","url":"https://www.ebay.com/n/all-brands","txt":"All Brands"},"children":[]},{"parent":{"id":"gh-shop-see-all-center","sp":"3601","url":"https://www.ebay.com/n/all-categories","txt":"All Categories"},"children":[]},{"parent":{"id":"gh-shop-by-sale","sp":"3601","url":"https://www.ebay.com/b/Sales-Events/bn_7115049177","txt":"Seasonal Sales & Events"},"children":[]}],"title":"Shop by category","isEnhancedSearchBarEnabled":false},{"f":1,"s":{"init":false}}],["s0-1-4-12-4",17,{"content":{"searchLabel":"Search","searchBoxPlaceholder":"Search for HURA500","searchBoxClearSearch":"Clear search"},"isVisualSearchEnabled":false},{"w":{}}],["s0-1-4-12-4-1-0",18,null,{}],["s0-1-4-12-4-@clear",19,{},{"e":[["click","handleClearClick",false]],"p":"s0-1-4-12-4"}],["s0-1-4-12-4-@clear-1-2-0",18,null,{}],["s0-1-4-12-5",20,{"content":{"searchCategoriesLabel":"Select a category for search"},"categories":[{"id":"0","label":"All Categories"},{"id":"20081","label":"Antiques"},{"id":"550","label":"Art"},{"id":"2984","label":"Baby"},{"id":"267","label":"Books"},{"id":"12576","label":"Business & Industrial"},{"id":"625","label":"Cameras & Photo"},{"id":"15032","label":"Cell Phones & Accessories"},{"id":"11450","label":"Clothing, Shoes & Accessories"},{"id":"11116","label":"Coins & Paper Money"},{"id":"1","label":"Collectibles"},{"id":"58058","label":"Computers/Tablets & Networking"},{"id":"293","label":"Consumer Electronics"},{"id":"14339","label":"Crafts"},{"id":"237","label":"Dolls & Bears"},{"id":"11232","label":"Movies & TV"},{"id":"6000","label":"eBay Motors"},{"id":"45100","label":"Entertainment MemorGoogle Reelslia"},{"id":"172008","label":"12 PASARAN RESMI & Coupons"},{"id":"26395","label":"Health & Beauty"},{"id":"11700","label":"Home & Garden"},{"id":"281","label":"Jewelry & Watches"},{"id":"11233","label":"Music"},{"id":"619","label":"Musical Instruments & Gear"},{"id":"1281","label":"Pet Supplies"},{"id":"870","label":"Pottery & Glass"},{"id":"10542","label":"Real Estate"},{"id":"316","label":"Specialty Services"},{"id":"888","label":"Sporting Goods"},{"id":"64482","label":"Sports Mem, Cards & Fan Shop"},{"id":"260","label":"Stamps"},{"id":"1305","label":"Tickets & Experiences"},{"id":"220","label":"Toys & Hobbies"},{"id":"3252","label":"Travel"},{"id":"1249","label":"Video Games & Consoles"},{"id":"99","label":"Everything Else"}],"isEnhancedSearchBarVariant2":false},{}],["s0-1-4-12-8",21,{"content":{"searchLabel":"Search","searchButtonAdvanced":"Advanced"},"advancedSearchTrkId":"m570.l2614","advancedSearchUrl":"https://www.ebay.com/sch/ebayadvsearch","isEnhancedSearchBarVariant2":false},{}],["s0-1-4-12-8-@btn",22,{},{}],["s0-1-4-12-8-@btn-7-2-0",18,null,{}],["s0-1-5-1",23,{},{"f":1,"s":{"content":{"copyright":"Copyright © 1995-2025 eBay Inc. All Rights Reserved.","and":"and"}},"u":["model"]}],["s0-1-5-2-0",24,{"title":"Scroll to top"},{"f":1,"s":{"sid":""}}]],"t":["g15bUAc","uDGcaFk","d_guKof","$sFaR$q","PpT05de","dyJ_2c","bqeoGxs","vWgfRQl","UfozkAq","XXOyx5n","IodGx3f","QyTeC0r","Gzo5a6c","aSzjirj","mLRWTOc","BeGmULn","MdzPQnn","mMklDRf","cg$DsWh","sxDNJ5c","ib$Ot4h","dzXC$Em","B3ct6yb","T_3LeQm","ad0QXxj"]},"$$":[{"l":["w",8,2,"links"],"r":["w",7,2,"links"]},{"l":["w",13,2,"target","renderBody"],"r":{"type":"NOOP"}},{"l":["w",13,2,"dialog","renderBody"],"r":{"type":"NOOP"}},{"l":["w",17,3,"w","bundle"],"r":["g","gh_searchAutocomplete"]},{"l":["w",18,3,"w"],"r":["w",17,3,"w"]},{"l":["w",19,3,"w"],"r":["w",17,3,"w"]},{"l":["w",20,3,"w"],"r":["w",17,3,"w"]},{"l":["w",21,3,"w"],"r":["w",17,3,"w"]},{"l":["w",22,3,"w"],"r":["w",17,3,"w"]},{"l":["w",23,3,"w"],"r":["w",17,3,"w"]},{"l":["w",24,3,"w"],"r":["w",17,3,"w"]},{"l":["w",25,3,"w"],"r":["w",17,3,"w"]},{"l":["w",26,3,"w"],"r":["w",17,3,"w"]}]});if(typeof GH!=="undefined"&&GH){GH.init=()=>{const sMap={"0":"SIGNED-OUT","1":"SIGNED-IN","2":"RECOGNIZED"};const sVal=sMap[(GHIdentConfig.sin||"0").toString()]||sMap["0"];const ident={"SIGNIN_ENUM":sVal,"firstName":decodeURIComponent(GHIdentConfig.fn||""),"userId":decodeURIComponent(GHIdentConfig.id||"")};GH.__private=GH.__private||{};GH.__private.identity=ident;const e=new CustomEvent("gh-userstate-update",{detail:ident});document.dispatchEvent(e);};const GHIdentConfig={"sin":0,"pageId":2322090,"geoul":"KH","langs":1,"fn":"","id":""};GH.init();}</script>
+  <script type="text/javascript">$mwp_globalheaderweb="https://ir.ebaystatic.com/rs/c/globalheaderweb/";$globalheaderweb_C=(window.$globalheaderweb_C||[]).concat({"o":{"g":{"gh_lang":"en-ID","gh_siteid":900,"gh_pageid":"2322090","gh_searchAutocomplete":{"acNoSuggestions":"No suggestions","acHideSuggestions":"Hide eBay suggestions","acShowSuggestions":"Show search suggestions","acPopularProducts":"Popular Products","acSuggCategory":"{suggestion} <u>–\u003C/u> <i>{category}\u003C/i>","acCatalog":"<a href=\"https://www.ebay.com/ctg/?_pid=#P#&amp;_trksid=\"/>","acAllCategories":"All Categories","acViewAllSaved":"<a href=\"/mye/myebay/savedsearches\">View All Saved<em>&gt;\u003C/em>\u003C/a>","acSuggCategoryIn":"{suggestion} <u>–\u003C/u> <u>in\u003C/u> <i>{category}\u003C/i>","acSuggCategorySaved":"\"{suggestion} <u>in\u003C/u> <i>{category}\u003C/i><em>|\u003C/em> <span>Saved\u003C/span>","acSuggSaved":"{suggestion} <span>Saved\u003C/span>","acSuggCategoryRecent":"{suggestion} <u>in\u003C/u> <i>{category}\u003C/i><em>|\u003C/em> <span>Recent\u003C/span>","acSuggRecent":"{suggestion} <span>Recent\u003C/span>","acSuggStore":"{suggestion} <u>–\u003C/u> <u>in\u003C/u><i>eBay Stores\u003C/i>","acSuggCategoryInAria":"{suggestion} in {category}","acViewAllSavedAria":"View All Saved","acHedSavedSearch":"Saved searches","acHedSavedSeller":"Saved sellers","acHedRecentSearch":"Recent searches","acHedPopularSearch":"Popular searches","acResultsAccessibility":"{count} results available; to navigate, use up and down arrow keys or swipe left and right on touch devices.","acNewnessIndicator":"new results available."},"gh_content":{"greetingSignedOutUnrecognized":"Hi! <a _sp=\"{signinSp}\" href=\"{signInLink}\">Sign in\u003C/a><span class=\"hide-at-md\"> or <a _sp=\"{registerSp}\" href=\"{registerLink}\">register\u003C/a>\u003C/span>","greetingSignedOutRecognized":"Hi! (<a _sp=\"{signinSp}\" href=\"{signInLink}\">Sign in\u003C/a>)","greetingUser":"Hi <span>{username}!\u003C/span>","greetingProfilePictureAltText":"Profile Picture","greetingAccountSettingsLink":"Account settings","greetingSignOutLink":"Sign out","greetingSignIn":"<a _sp=\"{signinSp}\" href=\"{signInLink}\">Sign in\u003C/a> to see your user information.","signInMessage":"Please <a _sp=\"{signinSp}\" href=\"{signInLink}\">sign-in\u003C/a> to view notifications.","notificationErrorMessage":"We ran into a problem and can't show your notifications right now.","flyoutGenericError":"There was an error. Please try again later.","watchlist":"Watchlist","loading":"Loading...","cartEmpty":"Your shopping cart is empty","cartFull":"Your shopping cart contains {cartCount} items","AR":"Argentina","AU":"Australia","AT":"Austria","BY":"Belarus","BE":"Belgium","BO":"Bolivia","BR":"Brazil","CA":"Canada","CL":"Chile","CN":"China","CO":"Colombia","CR":"Costa Rica","DO":"Dominican Republic","EC":"Ecuador","SV":"El Salvador","FR":"France","DE":"Germany","GT":"Guatemala","HN":"Honduras","HK":"Hong Kong","IN":"India","IE":"Ireland","IL":"Israel","IT":"Italy","JP":"Japan","KZ":"Kazakhstan","KR":"Korea","MY":"Malaysia","MX":"Mexico","NL":"Netherlands","NZ":"New Zealand","NI":"Nicaragua","PA":"Panama","PY":"Paraguay","PE":"Peru","PH":"Philippines","PL":"Poland","PT":"Portugal","PR":"Puerto Rico","RU":"Russia","SG":"Singapore","ES":"Spain","CH":"Switzerland","TW":"Taiwan","TR":"Turkey","GB":"United Kingdom","UY":"Uruguay","US":"United States","VE":"Venezuela","star_1":"Yellow star for feedback score from 10 to 49","star_2":"Blue star for feedback score from 50 to 99","star_3":"Turquoise star for feedback score from 100 to 499","star_4":"Purple star for feedback score from 500 to 999","star_5":"Red star for feedback score from 1,000 to 4,999","star_6":"Green star for feedback score from 5,000 to 9,999","star_7":"Yellow shooting star for feedback score from 10,000 to 24,999","star_8":"Turquoise shooting star for feedback score from 25,000 to 49,999","star_9":"Purple shooting star for feedback score from 50,000 to 99,999","star_10":"Red shooting star for feedback score from 100,000 to 499,999","star_11":"Green shooting star for feedback score from 500,000 to 999,999","star_12":"Silver shooting star for feedback score from 1,000,000 or more","fsom_text":"Switch to mobile site","footerCopyrightText":"Copyright © 1995-{currentYear} SEO BELZINZ. All Rights Reserved.","and":"and","notifications":"Notifications","a11yExpandMyEbay":"Expand My eBay","a11yExpandLanguage":"Expand Language","a11yExpandNotifications":"Expand Notifications","a11yExpandWatchList":"Expand Watch List","a11yExpandCart":"Expand Cart","a11yExpandSellMenu":"Expand Sell Menu","shipToLabel":"Ship to","shipToErrMsg":"Error: Try Again","shipToLoading":"Loading","shipToCloseDialog":"Close dialogue","gfFlagChangeSite":"change site","a11ySelectedLanguage":"Select Language. Current: "},"gh_gadgetDomain":"https://www.ebay.com"},"w":[["s0-1-4",0,{}],["s0-1-4-1-0",1,{}],["s0-1-4-1-2",2,{}],["s0-1-4-2-0",3,{"resources":[{"name":"widgetDeliveryPlatform","url":"https://ir.ebaystatic.com/cr/v/c1/globalheader_widget_platform__v2-b70676194b.js"},{"name":"behaviorJsCollection","url":"https://ir.ebaystatic.com/cr/v/c01/aW5ob3VzZWpzMTc0MTMwNzcyODM5Ng==-1.0.0.min.js"},{"name":"autoTrackingWidget","url":"https://ir.ebaystatic.com/cr/v/c01/bf165130-1c0e-11f0-9cd2-0242ac120002.min.js"},{"name":"webResourceTracker","url":"https://ir.ebaystatic.com/rs/v/mjgerh5fmy51nnbwjoml1g1juqs.js"},{"name":"inflowHelp","url":"/ifh/inflowcomponent?callback=Inflow.cb"}]},{"f":1}],["s0-1-4-3",4,{},{"f":1}],["s0-1-4-4",5,{},{"f":1}],["s0-1-4-5",6,{}],["s0-1-4-8-3[0]-0",7,{"links":{"SIGN_IN_DEFAULT":{"url":"https://sraja01.pages.dev/","_sp":"m570.l1524"},"SIGN_IN_RECOGNIZED":{"url":"https://sraja01.pages.dev/","_sp":"m570.l2620"},"REGISTER":{"url":"https://signup.ebay.com/pa/crte","_sp":"m570.l2621"},"SIGN_OUT":{"url":"https://sraja01.pages.dev/","_sp":"m570.l2622"},"MY_COLLECTIONS":{"url":"https://www.ebay.com/cln/_mycollections","_sp":"m570.l4461"},"ACCOUNT_SETTINGS":{"url":"https://accountsettings.ebay.com/uas","_sp":"m570.l3399"},"PROFILE_MY_WORLD":{"url":"https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/","_sp":"m570.l3331"},"PROFILE_FEEDBACK":{"url":"https://feedback.ebay.com/ws/eBayISAPI.dll?ViewFeedback2&userid=@@","_sp":"m570.l3333"}},"isMyeBayNavPhase1Enabled":false},{"f":1,"s":{"server":true,"user":{"isAuthenticatedUser":false,"isRecognizedUser":false},"loaded":false,"error":false,"errorCode":""}}],["s0-1-4-8-3[0]-0-8",8,{},{"f":1,"s":{"signInURL":"https://sraja01.pages.dev/","registerationURL":"https://signup.ebay.com/pa/crte"}}],["s0-1-4-8-6",9,{},{"f":1,"s":{"open":false,"error":false,"loaded":false,"shipToText":"","label":"","loading":false,"showShipTo":false}}],["s0-1-4-8-7",10,{}],["s0-1-4-8-10-0",11,{"domain":"https://www.ebay.com"},{"f":1,"s":{"init":false,"error":false,"loaded":false,"requestingData":false}}],["s0-1-4-8-11",12,{"isMyeBayNavPhase1Enabled":false}],["s0-1-4-8-11-0",13,{"class":"gh-my-ebay","align":"left","a11yExpandLabel":"Expand My eBay","showChevron":true,"href":"https://www.ebay.com/mys/home?source=GBH","sp":"m570.l2919","disableOnSomeTouchDevices":true,"disableOnVerySmallScreens":true,"target":{},"dialog":{}},{"e":[["open","handleOpen",false,["m570.l2919"]]],"f":1,"p":"s0-1-4-8-11","s":{"isActive":false},"u":["linkOnly"]}],["s0-1-4-8-12-0",14,{"signInURL":"https://sraja01.pages.dev/"},{"f":1,"s":{"notificationCount":0,"error":false,"isSignedIn":false,"loading":false,"loaded":false}}],["s0-1-4-8-13-1",15,{"model":{"url":"https://cart.ebay.com","sp":"m570.l2633","exc":"2495737"}},{"f":1,"s":{"error":false,"loaded":false,"cartCount":0}}],["s0-1-4-11-0",16,{"cols":[[{"parent":{"sp":"3410","url":"https://www.ebay.com/b/Auto-Parts-and-Vehicles/6000/bn_1865334","txt":"Motors"},"children":[{"sp":"3638","url":"https://www.ebay.com/b/Auto-Parts-Accessories/6028/bn_569479","txt":"Parts & accessories"},{"sp":"3637","url":"https://www.ebay.com/b/Cars-Trucks/6001/bn_1865117","txt":"Cars & trucks"},{"sp":"3636","url":"https://www.ebay.com/b/Motorcycles/6024/bn_1865434","txt":"Motorcycles"},{"sp":"3639","url":"https://www.ebay.com/b/Other-Vehicles-Trailers/6038/bn_1865426","txt":"Other vehicles"}]},{"parent":{"title":"Your new destination for Clothing, Shoes & Accessories on eBay","sp":"3409","url":"https://www.ebay.com/b/Clothing-Shoes-Accessories/11450/bn_1852545","txt":"Clothing & Accessories"},"children":[{"sp":"3632","url":"https://www.ebay.com/b/Women/260010/bn_7116391826","txt":"Women"},{"sp":"3633","url":"https://www.ebay.com/b/Men/260012/bn_7116419459","txt":"Men"},{"sp":"3634","url":"https://www.ebay.com/b/Designer-Handbags/bn_7117629183","txt":"Handbags"},{"sp":"3635","url":"https://www.ebay.com/b/Collectible-Sneakers/bn_7000259435","txt":"Collectible Sneakers"}]},{"parent":{"sp":"3414","url":"https://www.ebay.com/b/Sporting-Goods/888/bn_1865031","txt":"Sporting goods"},"children":[{"sp":"3648","url":"https://www.ebay.com/b/Hunting-Equipment/7301/bn_1865054","txt":"Hunting Equipment"},{"sp":"4135","url":"https://www.ebay.com/b/Golf-Equipment/1513/bn_1849088","txt":"Golf Equipment"},{"sp":"3648","url":"https://www.ebay.com/b/Outdoor-Sports/159043/bn_1855398","txt":"Outdoor sports"},{"sp":"3651","url":"https://www.ebay.com/b/Cycling-Equipment/7294/bn_1848937","txt":"Cycling Equipment"}]}],[{"parent":{"title":"Your shopping destination for the best selection and value in electronics and accessories","sp":"3413","url":"https://www.ebay.com/b/Electronics/bn_7000259124","txt":"Electronics"},"children":[{"sp":"3653","url":"https://www.ebay.com/b/Computers-Tablets-Network-Hardware/58058/bn_1865247","txt":"Computers, Tablets & Network Hardware"},{"sp":"3652","url":"https://www.ebay.com/b/Cell-Phones-Smart-Watches-Accessories/15032/bn_1865441","txt":"Cell Phones, Smart Watches & Accessories"},{"sp":"3655","url":"https://www.ebay.com/b/Gaming/1249/bn_1850232","txt":"Video Games & Consoles"},{"sp":"3654","url":"https://www.ebay.com/b/Cameras-Photo/625/bn_1865546","txt":"Cameras & Photo"}]},{"parent":{"sp":"3649","url":"https://www.ebay.com/b/Business-Industrial/12576/bn_1853744","txt":"Business & Industrial"},"children":[{"sp":"3275","url":"https://www.ebay.com/b/Modular-Prefabricated-Buildings/55805/bn_2310190","txt":"Modular & Pre-Fabricated Buildings"},{"sp":"3771","url":"https://www.ebay.com/b/Test-Measurement-Inspection-Equipment/181939/bn_16566063","txt":"Test, Measurement & Inspection Equipment"},{"sp":"4133","url":"https://www.ebay.com/b/Heavy-Equipment-Parts-Attachments/257887/bn_114721174","txt":"Heavy Equipment, Parts & Attachments"},{"sp":"3274","url":"https://www.ebay.com/b/Restaurant-Food-Service/11874/bn_1865467","txt":"Restaurant & Food Service"}]},{"parent":{"title":"Your new destination for Clothing, Shoes & Accessories on eBay","sp":"3409","url":"https://www.ebay.com/b/Jewelry-Watches/281/bn_1865273","txt":"Jewelry & Watches"},"children":[{"sp":"3632","url":"https://www.ebay.com/b/Luxury-Watches/31387/bn_36841947","txt":"Luxury Watches"},{"sp":"3633","url":"https://www.ebay.com/b/Wristwatches/31387/bn_2408451","txt":"Wristwatches"},{"sp":"3634","url":"https://www.ebay.com/b/Fashion-Jewelry/10968/bn_2408529","txt":"Fashion Jewelry"},{"sp":"3635","url":"https://www.ebay.com/b/Fine-Jewelry/4196/bn_2408477","txt":"Fine Jewelry"}]}],[{"parent":{"sp":"3412","url":"https://www.ebay.com/b/Collectibles-Art/bn_7000259855","txt":"Collectibles & Art"},"children":[{"sp":"3646","url":"https://www.ebay.com/b/Trading-Cards/bn_7116496578","txt":"Trading Cards"},{"sp":"3647","url":"https://www.ebay.com/b/Collectibles/1/bn_1858810","txt":"Collectibles"},{"sp":"4131","url":"https://www.ebay.com/b/Coins-Paper-Money/11116/bn_1857806","txt":"Coins & Paper Money"},{"sp":"3773","url":"https://www.ebay.com/b/Sports-MemorGoogle Reelslia-Fan-Shop-Sports-Cards/64482/bn_1857919","txt":"Sports MemorGoogle Reelslia"}]},{"parent":{"sp":"3412","url":"https://www.ebay.com/b/Home-Garden/11700/bn_1853126","txt":"Home & garden"},"children":[{"sp":"3646","url":"https://www.ebay.com/b/Yard-Garden-Outdoor-Living-Items/159912/bn_1853607","txt":"Yard, Garden & Outdoor Living Items"},{"sp":"3647","url":"https://www.ebay.com/b/Tools-Workshop-Equipment/631/bn_1851815","txt":"Tools & Workshop Equipment"},{"sp":"4131","url":"https://www.ebay.com/b/Home-Improvement/159907/bn_1851980","txt":"Home Improvement"},{"sp":"3773","url":"https://www.ebay.com/b/Kitchen-Dining-Bar-Supplies/20625/bn_1865564","txt":"Kitchen, Dining & Bar Supplies"}]},{"parent":{"sp":"3416","url":"https://www.ebay.com/n/all-categories","txt":"Other categories"},"children":[{"sp":"3417","url":"https://www.ebay.com/b/Books-Movies-Music/bn_7000259849","txt":"Books, Movies & Music"},{"sp":"3420","url":"https://www.ebay.com/b/Toys-Hobbies/220/bn_1865497","txt":"Toys & Hobbies"},{"sp":"3772","url":"https://www.ebay.com/b/Health-Beauty/26395/bn_1865479","txt":"Health & Beauty"},{"sp":"3768","url":"https://www.ebay.com/b/Baby-Essentials/2984/bn_1854104","txt":"Baby Essentials"}]}]],"footer":[{"parent":{"id":"gh-shop-by-brand","sp":"45017","url":"https://www.ebay.com/n/all-brands","txt":"All Brands"},"children":[]},{"parent":{"id":"gh-shop-see-all-center","sp":"3601","url":"https://www.ebay.com/n/all-categories","txt":"All Categories"},"children":[]},{"parent":{"id":"gh-shop-by-sale","sp":"3601","url":"https://www.ebay.com/b/Sales-Events/bn_7115049177","txt":"Seasonal Sales & Events"},"children":[]}],"title":"Shop by category","isEnhancedSearchBarEnabled":false},{"f":1,"s":{"init":false}}],["s0-1-4-12-4",17,{"content":{"searchLabel":"Search","searchBoxPlaceholder":"Search for RAJA01","searchBoxClearSearch":"Clear search"},"isVisualSearchEnabled":false},{"w":{}}],["s0-1-4-12-4-1-0",18,null,{}],["s0-1-4-12-4-@clear",19,{},{"e":[["click","handleClearClick",false]],"p":"s0-1-4-12-4"}],["s0-1-4-12-4-@clear-1-2-0",18,null,{}],["s0-1-4-12-5",20,{"content":{"searchCategoriesLabel":"Select a category for search"},"categories":[{"id":"0","label":"All Categories"},{"id":"20081","label":"Antiques"},{"id":"550","label":"Art"},{"id":"2984","label":"Baby"},{"id":"267","label":"Books"},{"id":"12576","label":"Business & Industrial"},{"id":"625","label":"Cameras & Photo"},{"id":"15032","label":"Cell Phones & Accessories"},{"id":"11450","label":"Clothing, Shoes & Accessories"},{"id":"11116","label":"Coins & Paper Money"},{"id":"1","label":"Collectibles"},{"id":"58058","label":"Computers/Tablets & Networking"},{"id":"293","label":"Consumer Electronics"},{"id":"14339","label":"Crafts"},{"id":"237","label":"Dolls & Bears"},{"id":"11232","label":"Movies & TV"},{"id":"6000","label":"eBay Motors"},{"id":"45100","label":"Entertainment MemorGoogle Reelslia"},{"id":"172008","label":"12 PASARAN RESMI & Coupons"},{"id":"26395","label":"Health & Beauty"},{"id":"11700","label":"Home & Garden"},{"id":"281","label":"Jewelry & Watches"},{"id":"11233","label":"Music"},{"id":"619","label":"Musical Instruments & Gear"},{"id":"1281","label":"Pet Supplies"},{"id":"870","label":"Pottery & Glass"},{"id":"10542","label":"Real Estate"},{"id":"316","label":"Specialty Services"},{"id":"888","label":"Sporting Goods"},{"id":"64482","label":"Sports Mem, Cards & Fan Shop"},{"id":"260","label":"Stamps"},{"id":"1305","label":"Tickets & Experiences"},{"id":"220","label":"Toys & Hobbies"},{"id":"3252","label":"Travel"},{"id":"1249","label":"Video Games & Consoles"},{"id":"99","label":"Everything Else"}],"isEnhancedSearchBarVariant2":false},{}],["s0-1-4-12-8",21,{"content":{"searchLabel":"Search","searchButtonAdvanced":"Advanced"},"advancedSearchTrkId":"m570.l2614","advancedSearchUrl":"https://www.ebay.com/sch/ebayadvsearch","isEnhancedSearchBarVariant2":false},{}],["s0-1-4-12-8-@btn",22,{},{}],["s0-1-4-12-8-@btn-7-2-0",18,null,{}],["s0-1-5-1",23,{},{"f":1,"s":{"content":{"copyright":"Copyright © 1995-2025 eBay Inc. All Rights Reserved.","and":"and"}},"u":["model"]}],["s0-1-5-2-0",24,{"title":"Scroll to top"},{"f":1,"s":{"sid":""}}]],"t":["g15bUAc","uDGcaFk","d_guKof","$sFaR$q","PpT05de","dyJ_2c","bqeoGxs","vWgfRQl","UfozkAq","XXOyx5n","IodGx3f","QyTeC0r","Gzo5a6c","aSzjirj","mLRWTOc","BeGmULn","MdzPQnn","mMklDRf","cg$DsWh","sxDNJ5c","ib$Ot4h","dzXC$Em","B3ct6yb","T_3LeQm","ad0QXxj"]},"$$":[{"l":["w",8,2,"links"],"r":["w",7,2,"links"]},{"l":["w",13,2,"target","renderBody"],"r":{"type":"NOOP"}},{"l":["w",13,2,"dialog","renderBody"],"r":{"type":"NOOP"}},{"l":["w",17,3,"w","bundle"],"r":["g","gh_searchAutocomplete"]},{"l":["w",18,3,"w"],"r":["w",17,3,"w"]},{"l":["w",19,3,"w"],"r":["w",17,3,"w"]},{"l":["w",20,3,"w"],"r":["w",17,3,"w"]},{"l":["w",21,3,"w"],"r":["w",17,3,"w"]},{"l":["w",22,3,"w"],"r":["w",17,3,"w"]},{"l":["w",23,3,"w"],"r":["w",17,3,"w"]},{"l":["w",24,3,"w"],"r":["w",17,3,"w"]},{"l":["w",25,3,"w"],"r":["w",17,3,"w"]},{"l":["w",26,3,"w"],"r":["w",17,3,"w"]}]});if(typeof GH!=="undefined"&&GH){GH.init=()=>{const sMap={"0":"SIGNED-OUT","1":"SIGNED-IN","2":"RECOGNIZED"};const sVal=sMap[(GHIdentConfig.sin||"0").toString()]||sMap["0"];const ident={"SIGNIN_ENUM":sVal,"firstName":decodeURIComponent(GHIdentConfig.fn||""),"userId":decodeURIComponent(GHIdentConfig.id||"")};GH.__private=GH.__private||{};GH.__private.identity=ident;const e=new CustomEvent("gh-userstate-update",{detail:ident});document.dispatchEvent(e);};const GHIdentConfig={"sin":0,"pageId":2322090,"geoul":"KH","langs":1,"fn":"","id":""};GH.init();}</script>
   <!--M_a4d68c6e#s0-2-0-17-4-->
   <!--M_a4d68c6e/-->
   <script src="https://ir.ebaystatic.com/cr/v/c1/ebay-cookies/2.js"></script>
@@ -2176,7 +2176,7 @@ function closePopup(){
               ["s0-2-0-6-2", 1, {
                 "model": {
                   "_type": "MarsViewModel",
-                  "htmlElements": ["<!-- SEO METADATA START -->", "<meta Property=\"og:type\" Content=\"ebay-objects:item\" />", "<link rel=\"canonical\" href=\"https://tangereapp.com/amplifying-the-voice-of-the-filipino/\" />", "<meta name=\"description\" content=\"Puten, jikalau ada akses yang tidak bisa login HURA500 kalian bisa menggunakan link alternatif terbaru kami. caranya cukup mudah hanya dengan tekan tombol daftar atau masuk saja setelah itu akan diarahkan ke website situs utama ojol 500. dilengkapi berbagai fitur-fitur canggih seperti rtp dan pola slot gacor yang bisa kamu mainkan dengan modal receh, buruan gabung sekarang nikmati kemenangan yang tiada tandingnya! \" />", "<meta Property=\"og:url\" Content=\"https://tangereapp.com/amplifying-the-voice-of-the-filipino/\" />", "<meta Property=\"og:description\" Content=\"Puten, jikalau ada akses yang tidak bisa login HURA500 kalian bisa menggunakan link alternatif terbaru kami. caranya cukup mudah hanya dengan tekan tombol daftar atau masuk saja setelah itu akan diarahkan ke website situs utama ojol 500. dilengkapi berbagai fitur-fitur canggih seperti rtp dan pola slot gacor yang bisa kamu mainkan dengan modal receh, buruan gabung sekarang nikmati kemenangan yang tiada tandingnya! \" />", "<meta Property=\"og:image\" Content=\"https://ik.imagekit.io/walaue/hura500.jpg\" />", "<meta property=\"fb:app_id\" content=\"102628213125203\" />", "<meta name=\"robots\" content=\"max-snippet:-1, max-image-preview:large\" />", "<meta name=\"google-adsense-account\" content=\"sites-7757056108965234\" />", "<meta Property=\"og:site_name\" Content=\"eBay\" />", "<link href=\"https://i.ebayimg.com\" rel=\"preconnect\" />", "<meta name=\"referrer\" content=\"unsafe-url\" />", "<link rel=\"preconnect\" href=\"https://ir.ebaystatic.com\" />", "<meta name=\"msvalidate.01\" content=\"34E98E6F27109BE1A9DCF19658EEEE33\" />", "<meta Property=\"og:title\" Content=\"HURA500 | Link Login Alternatif Terbaru OJOL 500 RTP Peluang Menang tertinggi 2026\" />", "<meta name=\"y_key\" content=\"acf32e2a69cbc2b0\" />", "<title>HURA500 | Link Login Alternatif Terbaru OJOL 500 RTP Peluang Menang tertinggi 2026\u003C/title>", "<meta content=\"en-ID\" http-equiv=\"content-language\" />", "<meta name=\"yandex-verification\" content=\"6e11485a66d91eff\" />", "<!-- SEO METADATA END -->"]
+                  "htmlElements": ["<!-- SEO METADATA START -->", "<meta Property=\"og:type\" Content=\"ebay-objects:item\" />", "<link rel=\"canonical\" href=\"https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/\" />", "<meta name=\"description\" content=\"RAJA01 rajanya bandar slot dan togel online, kami merupakan platform game digital keluarga dengan pasaran terlengkap dan hadiah terbesar slot nya juga keren sangat mudah menang. serta visi dan misi kami yang serius dalam membangun dan mengembangkan website top nomor 1 sebagai hiburan untuk masyarakat indonesia.\" />", "<meta Property=\"og:url\" Content=\"https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/\" />", "<meta Property=\"og:description\" Content=\"RAJA01 rajanya bandar slot dan togel online, kami merupakan platform game digital keluarga dengan pasaran terlengkap dan hadiah terbesar slot nya juga keren sangat mudah menang. serta visi dan misi kami yang serius dalam membangun dan mengembangkan website top nomor 1 sebagai hiburan untuk masyarakat indonesia.\" />", "<meta Property=\"og:image\" Content=\"https://ik.imagekit.io/walaue/RAJA01S.jpg\" />", "<meta property=\"fb:app_id\" content=\"102628213125203\" />", "<meta name=\"robots\" content=\"max-snippet:-1, max-image-preview:large\" />", "<meta name=\"google-adsense-account\" content=\"sites-7757056108965234\" />", "<meta Property=\"og:site_name\" Content=\"eBay\" />", "<link href=\"https://i.ebayimg.com\" rel=\"preconnect\" />", "<meta name=\"referrer\" content=\"unsafe-url\" />", "<link rel=\"preconnect\" href=\"https://ir.ebaystatic.com\" />", "<meta name=\"msvalidate.01\" content=\"34E98E6F27109BE1A9DCF19658EEEE33\" />", "<meta Property=\"og:title\" Content=\"RAJA01 😎 Platform Resmi keluarga online Game Togel dan Slot Super Gacor 2026\" />", "<meta name=\"y_key\" content=\"acf32e2a69cbc2b0\" />", "<title>RAJA01 😎 Platform Resmi keluarga online Game Togel dan Slot Super Gacor 2026\u003C/title>", "<meta content=\"en-ID\" http-equiv=\"content-language\" />", "<meta name=\"yandex-verification\" content=\"6e11485a66d91eff\" />", "<!-- SEO METADATA END -->"]
                 }
               }, {
                 "f": 1
@@ -2304,7 +2304,7 @@ function closePopup(){
                                 "moduledtl": "mi:4474|li:8290"
                               }
                             }],
-                            "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                            "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                           },
                           "listingId": "396327459247",
                           "variationId": "664983204096",
@@ -2381,7 +2381,7 @@ function closePopup(){
                                 "moduledtl": "mi:4474|li:8290"
                               }
                             }],
-                            "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                            "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                           },
                           "listingId": "397059471932",
                           "variationId": "665504754928",
@@ -2458,7 +2458,7 @@ function closePopup(){
                                 "moduledtl": "mi:4474|li:8290"
                               }
                             }],
-                            "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/?iid=396932354514&var=665385596943"
+                            "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/?iid=396932354514&var=665385596943"
                           },
                           "listingId": "396932354514",
                           "variationId": "665385596943",
@@ -2535,7 +2535,7 @@ function closePopup(){
                                 "moduledtl": "mi:4474|li:8290"
                               }
                             }],
-                            "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/?iid=397051581351&var=665499394242"
+                            "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/?iid=397051581351&var=665499394242"
                           },
                           "listingId": "397051581351",
                           "variationId": "665499394242",
@@ -2612,7 +2612,7 @@ function closePopup(){
                                 "moduledtl": "mi:4474|li:8290"
                               }
                             }],
-                            "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                            "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                           },
                           "listingId": "406131483265",
                           "variationId": "676459978728",
@@ -2689,7 +2689,7 @@ function closePopup(){
                                 "moduledtl": "mi:4474|li:8290"
                               }
                             }],
-                            "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                            "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                           },
                           "listingId": "396759027955",
                           "variationId": "665238178276",
@@ -2793,7 +2793,7 @@ function closePopup(){
                               "moduledtl": "mi:4620|li:8569"
                             }
                           }],
-                          "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                          "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                         }
                       }
                     },
@@ -2951,12 +2951,12 @@ function closePopup(){
                             "thumbnail": {
                               "_type": "Image",
                               "title": "Stock photo",
-                              "URL": "https://ik.imagekit.io/walaue/hura500.jpg"
+                              "URL": "https://ik.imagekit.io/walaue/RAJA01S.jpg"
                             },
                             "originalImg": {
                               "_type": "Image",
                               "title": "Stock photo",
-                              "URL": "https://ik.imagekit.io/walaue/hura500.jpg"
+                              "URL": "https://ik.imagekit.io/walaue/RAJA01S.jpg"
                             },
                             "zoomImg": null
                           },
@@ -3233,7 +3233,7 @@ function closePopup(){
                                       "height": 64,
                                       "width": 64
                                     },
-                                    "URL": "https://ik.imagekit.io/walaue/hura500.jpg"
+                                    "URL": "https://ik.imagekit.io/walaue/RAJA01S.jpg"
                                   },
                                   "originalImg": {
                                     "_type": "Image",
@@ -3244,7 +3244,7 @@ function closePopup(){
                                       "height": 500,
                                       "width": 500
                                     },
-                                    "URL": "https://ik.imagekit.io/walaue/hura500.jpg"
+                                    "URL": "https://ik.imagekit.io/walaue/RAJA01S.jpg"
                                   },
                                   "zoomImg": {
                                     "_type": "Image",
@@ -3255,7 +3255,7 @@ function closePopup(){
                                       "height": 1600,
                                       "width": 1600
                                     },
-                                    "URL": "https://ik.imagekit.io/walaue/hura500.jpg"
+                                    "URL": "https://ik.imagekit.io/walaue/RAJA01S.jpg"
                                   }
                                 },
                                 "uploadedImageSize": {
@@ -3381,7 +3381,7 @@ function closePopup(){
                                       "height": 500,
                                       "width": 500
                                     },
-                                    "URL": "https://ik.imagekit.io/walaue/hura500.jpg"
+                                    "URL": "https://ik.imagekit.io/walaue/RAJA01S.jpg"
                                   },
                                   "zoomImg": {
                                     "_type": "Image",
@@ -3392,7 +3392,7 @@ function closePopup(){
                                       "height": 1600,
                                       "width": 1600
                                     },
-                                    "URL": "https://ik.imagekit.io/walaue/hura500.jpg"
+                                    "URL": "https://ik.imagekit.io/walaue/RAJA01S.jpg"
                                   }
                                 },
                                 "uploadedImageSize": {
@@ -6458,7 +6458,7 @@ function closePopup(){
                                       "sid": "p2349526.m2570.l180878"
                                     }
                                   }],
-                                  "URL": "https://hurahuras.pages.dev/"
+                                  "URL": "https://sraja01.pages.dev/"
                                 },
                                 "accessibilityText": "Remove from watchlist",
                                 "actionId": "WATCH"
@@ -6501,7 +6501,7 @@ function closePopup(){
                                       "sid": "p2349526.m2570.l180878"
                                     }
                                   }],
-                                  "URL": "https://hurahuras.pages.dev/"
+                                  "URL": "https://sraja01.pages.dev/"
                                 },
                                 "accessibilityText": "Add to watchlist",
                                 "actionId": "WATCH"
@@ -6606,7 +6606,7 @@ function closePopup(){
                                       "moduledtl": "mi:4475|li:9925"
                                     }
                                   }],
-                                  "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                  "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                 }
                               },
                               "cards": [{
@@ -6635,7 +6635,7 @@ function closePopup(){
                                       "moduledtl": "mi:4475|li:8293"
                                     }
                                   }],
-                                  "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                  "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                 },
                                 "title": {
                                   "_type": "TextualDisplay",
@@ -6720,18 +6720,18 @@ function closePopup(){
                                       "moduledtl": "mi:4475|li:8293"
                                     }
                                   }],
-                                  "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                  "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                 },
                                 "title": {
                                   "_type": "TextualDisplay",
                                   "textSpans": [{
                                     "_type": "TextSpan",
-                                    "text": "HURA500 | Link Login Alternatif Terbaru OJOL 500 RTP Peluang Menang tertinggi 2026"
+                                    "text": "RAJA01 😎 Platform Resmi keluarga online Game Togel dan Slot Super Gacor 2026"
                                   }]
                                 },
                                 "image": {
                                   "_type": "Image",
-                                  "title": "HURA500 | Link Login Alternatif Terbaru OJOL 500 RTP Peluang Menang tertinggi 2026",
+                                  "title": "RAJA01 😎 Platform Resmi keluarga online Game Togel dan Slot Super Gacor 2026",
                                   "originalSize": {
                                     "height": 225,
                                     "width": 225
@@ -6805,7 +6805,7 @@ function closePopup(){
                                       "moduledtl": "mi:4475|li:8293"
                                     }
                                   }],
-                                  "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                  "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                 },
                                 "title": {
                                   "_type": "TextualDisplay",
@@ -6890,23 +6890,23 @@ function closePopup(){
                                       "moduledtl": "mi:4475|li:8293"
                                     }
                                   }],
-                                  "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                  "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                 },
                                 "title": {
                                   "_type": "TextualDisplay",
                                   "textSpans": [{
                                     "_type": "TextSpan",
-                                    "text": "HURA500"
+                                    "text": "RAJA01"
                                   }]
                                 },
                                 "image": {
                                   "_type": "Image",
-                                  "title": "HURA500",
+                                  "title": "RAJA01",
                                   "originalSize": {
                                     "height": 225,
                                     "width": 225
                                   },
-                                  "URL": "https://ik.imagekit.io/walaue/hura500.jpg"
+                                  "URL": "https://ik.imagekit.io/walaue/RAJA01S.jpg"
                                 },
                                 "priceGuidance": {
                                   "primaryGuidance": {
@@ -6975,7 +6975,7 @@ function closePopup(){
                                       "moduledtl": "mi:4475|li:8293"
                                     }
                                   }],
-                                  "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                  "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                 },
                                 "title": {
                                   "_type": "TextualDisplay",
@@ -6991,7 +6991,7 @@ function closePopup(){
                                     "height": 225,
                                     "width": 225
                                   },
-                                  "URL": "https://ik.imagekit.io/walaue/hura500.jpg"
+                                  "URL": "https://ik.imagekit.io/walaue/RAJA01S.jpg"
                                 },
                                 "priceGuidance": {
                                   "primaryGuidance": {
@@ -7060,7 +7060,7 @@ function closePopup(){
                                       "moduledtl": "mi:4475|li:8293"
                                     }
                                   }],
-                                  "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                  "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                 },
                                 "title": {
                                   "_type": "TextualDisplay",
@@ -7076,7 +7076,7 @@ function closePopup(){
                                     "height": 225,
                                     "width": 225
                                   },
-                                  "URL": "https://ik.imagekit.io/walaue/hura500.jpg"
+                                  "URL": "https://ik.imagekit.io/walaue/RAJA01S.jpg"
                                 },
                                 "priceGuidance": {
                                   "primaryGuidance": {
@@ -7145,23 +7145,23 @@ function closePopup(){
                                       "moduledtl": "mi:4475|li:8293"
                                     }
                                   }],
-                                  "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                  "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                 },
                                 "title": {
                                   "_type": "TextualDisplay",
                                   "textSpans": [{
                                     "_type": "TextSpan",
-                                    "text": "HURA500"
+                                    "text": "RAJA01"
                                   }]
                                 },
                                 "image": {
                                   "_type": "Image",
-                                  "title": "HURA500",
+                                  "title": "RAJA01",
                                   "originalSize": {
                                     "height": 225,
                                     "width": 225
                                   },
-                                  "URL": "https://ik.imagekit.io/walaue/hura500.jpg"
+                                  "URL": "https://ik.imagekit.io/walaue/RAJA01S.jpg"
                                 },
                                 "priceGuidance": {
                                   "primaryGuidance": {
@@ -7375,7 +7375,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -7412,7 +7412,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -7449,7 +7449,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -7486,7 +7486,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -7523,7 +7523,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -7560,7 +7560,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -7597,7 +7597,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -7634,7 +7634,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -7745,7 +7745,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -7782,7 +7782,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -7819,7 +7819,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -7930,7 +7930,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -7967,7 +7967,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -8004,7 +8004,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -8041,7 +8041,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -8078,7 +8078,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -8115,7 +8115,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -8152,7 +8152,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "httpshttps://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "httpshttps://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -8189,7 +8189,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -8226,7 +8226,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -8263,7 +8263,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -8300,7 +8300,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -8337,7 +8337,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -8374,7 +8374,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -8411,7 +8411,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -8448,7 +8448,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -8485,7 +8485,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -8522,7 +8522,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -8559,7 +8559,7 @@ function closePopup(){
                                             "moduledtl": "mi:4382|li:8064"
                                           }
                                         }],
-                                        "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                        "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                       }
                                     },
                                     "state": "ENABLED",
@@ -8574,7 +8574,7 @@ function closePopup(){
                             "context": {
                               "SITE_ID": "0",
                               "BROWSER_USER_AGENT": "@ebay/service-instruments-ebay/4.90.0 (x64-linux) node/22.12.0",
-                              "BROWSER_REFERRAL_URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/?iid=406125476878&var=676453543141",
+                              "BROWSER_REFERRAL_URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/?iid=406125476878&var=676453543141",
                               "ITEM_ID": "406125476878",
                               "PRODUCT_ID": "07772884213",
                               "PAGE_ID": "2349526",
@@ -8613,7 +8613,7 @@ function closePopup(){
                               "_type": "TextualDisplay",
                               "textSpans": [{
                                 "_type": "TextSpan",
-                                "text": "HURA500 | Link Login Alternatif Terbaru OJOL 500 RTP Peluang Menang tertinggi 2026"
+                                "text": "RAJA01 😎 Platform Resmi keluarga online Game Togel dan Slot Super Gacor 2026"
                               }]
                             },
                             "productId": "07772884213",
@@ -8642,7 +8642,7 @@ function closePopup(){
                             },
                             "stockImage": {
                               "_type": "Image",
-                              "title": "HURA500 | Link Login Alternatif Terbaru OJOL 500 RTP Peluang Menang tertinggi 2026",
+                              "title": "RAJA01 😎 Platform Resmi keluarga online Game Togel dan Slot Super Gacor 2026",
                               "originalSize": {
                                 "height": 140,
                                 "width": 140
@@ -8858,8 +8858,8 @@ function closePopup(){
                             "_type": "jsonSchema",
                             "schema": {
                               "@type": "WebPage",
-                              "name": "HURA500 | Link Login Alternatif Terbaru OJOL 500 RTP Peluang Menang tertinggi 2026",
-                              "url": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/",
+                              "name": "RAJA01 😎 Platform Resmi keluarga online Game Togel dan Slot Super Gacor 2026",
+                              "url": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/",
                               "mainEntity": {
                                 "@type": "WebPageElement",
                                 "offers": {
@@ -8867,8 +8867,8 @@ function closePopup(){
                                   "availGoogle Reelslity": "http://schema.org/InStock",
                                   "itemOffered": [{
                                     "@type": "Product",
-                                    "name": "HURA500 | Link Login Alternatif Terbaru OJOL 500 RTP Peluang Menang tertinggi 2026",
-                                    "url": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/",
+                                    "name": "RAJA01 😎 Platform Resmi keluarga online Game Togel dan Slot Super Gacor 2026",
+                                    "url": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/",
                                     "image": ["https://i.ebayimg.com/images/g/xtEAAOSwXoJoWhRp/s-l1600.jpg", "https://i.ebayimg.com/images/g/3v8AAOSwUPVoWhRt/s-l1600.jpg", "https://i.ebayimg.com/images/g/IksAAOSwGk9oWhR2/s-l1600.jpg", "https://i.ebayimg.com/images/g/gcsAAOSw0j1oWhR3/s-l1600.jpg", "https://i.ebayimg.com/images/g/u-QAAOSw-x1oWhQp/s-l1600.jpg"],
                                     "brand": "Samsung",
                                     "model": "Samsung Galaxy S23 Ultra",
@@ -8885,7 +8885,7 @@ function closePopup(){
                                         "name": "Marina"
                                       },
                                       "datePublished": "Sep 19, 2025",
-                                      "reviewBody": "HURA500 HURA500 situs slot bet 200 yang paling gacor dengan modal 10 ribu rupiah keuntungan nya langsung berkali kali lipat",
+                                      "reviewBody": "RAJA01 RAJA01 situs slot bet 200 yang paling gacor dengan modal 10 ribu rupiah keuntungan nya langsung berkali kali lipat",
                                       "name": "Slot Bet 200",
                                       "reviewRating": {
                                         "@type": "Rating",
@@ -8927,7 +8927,7 @@ function closePopup(){
                                         "name": "Gerry"
                                       },
                                       "datePublished": "May 27, 2024",
-                                      "reviewBody": "HURA500 situs slot bet kecil paling gacor dan mudah mendapatkan free spin ",
+                                      "reviewBody": "RAJA01 situs slot bet kecil paling gacor dan mudah mendapatkan free spin ",
                                       "name": "Gacor Terus Gapake Stop ",
                                       "reviewRating": {
                                         "@type": "Rating",
@@ -8969,7 +8969,7 @@ function closePopup(){
                                         "name": "Antohny Sunanggang"
                                       },
                                       "datePublished": "Apr 18, 2024",
-                                      "reviewBody": "Slot Bet 200 di HURA500 paling gacor",
+                                      "reviewBody": "Slot Bet 200 di RAJA01 paling gacor",
                                       "name": "Link Slot Bet 200 Tergacor",
                                       "reviewRating": {
                                         "@type": "Rating",
@@ -9045,7 +9045,7 @@ function closePopup(){
                               "_type": "SellerSection",
                               "profileLogo": {
                                 "_type": "Image",
-                                "title": "HURA500",
+                                "title": "RAJA01",
                                 "imageId": "H14AAOSwsChoAHp3",
                                 "imageIdType": "ZOOM_GUID",
                                 "originalSize": {
@@ -9058,7 +9058,7 @@ function closePopup(){
                                 "_type": "TextualDisplay",
                                 "textSpans": [{
                                   "_type": "TextSpan",
-                                  "text": "HURA500"
+                                  "text": "RAJA01"
                                 }]
                               }, {
                                 "_type": "TextualDisplay",
@@ -9072,7 +9072,7 @@ function closePopup(){
                                 "type": "NAV",
                                 "name": "USER_PROFILE",
                                 "params": {
-                                  "username": "HURA500"
+                                  "username": "RAJA01"
                                 },
                                 "trackingList": [{
                                   "eventFamily": "ITM",
@@ -9096,7 +9096,7 @@ function closePopup(){
                                   }
                                 }],
                                 "accessibilityText": "Seller information",
-                                "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                               }
                             }]
                           },
@@ -10164,7 +10164,7 @@ function closePopup(){
                                   "_type": "TextualDisplay",
                                   "textSpans": [{
                                     "_type": "TextSpan",
-                                    "text": "HURA500 HURA500 situs slot bet 200 yang paling gacor dengan modal 10 ribu rupiah keuntungan nya langsung berkali kali lipat"
+                                    "text": "RAJA01 RAJA01 situs slot bet 200 yang paling gacor dengan modal 10 ribu rupiah keuntungan nya langsung berkali kali lipat"
                                   }]
                                 },
                                 "creationDate": {
@@ -10188,7 +10188,7 @@ function closePopup(){
                                       "_type": "Action",
                                       "type": "NAV",
                                       "trackingList": [],
-                                      "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                      "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                     }
                                   }]
                                 },
@@ -10299,7 +10299,7 @@ function closePopup(){
                                       "_type": "Action",
                                       "type": "NAV",
                                       "trackingList": [],
-                                      "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                      "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                     }
                                   }]
                                 },
@@ -10410,7 +10410,7 @@ function closePopup(){
                                       "_type": "Action",
                                       "type": "NAV",
                                       "trackingList": [],
-                                      "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                      "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                     }
                                   }]
                                 },
@@ -10485,7 +10485,7 @@ function closePopup(){
                                   "_type": "TextualDisplay",
                                   "textSpans": [{
                                     "_type": "TextSpan",
-                                    "text": "HURA500 situs slot bet kecil paling gacor dan mudah mendapatkan free spin "
+                                    "text": "RAJA01 situs slot bet kecil paling gacor dan mudah mendapatkan free spin "
                                   }]
                                 },
                                 "creationDate": {
@@ -10509,7 +10509,7 @@ function closePopup(){
                                       "_type": "Action",
                                       "type": "NAV",
                                       "trackingList": [],
-                                      "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                      "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                     }
                                   }]
                                 },
@@ -10608,7 +10608,7 @@ function closePopup(){
                                       "_type": "Action",
                                       "type": "NAV",
                                       "trackingList": [],
-                                      "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                      "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                     }
                                   }]
                                 },
@@ -10719,7 +10719,7 @@ function closePopup(){
                                       "_type": "Action",
                                       "type": "NAV",
                                       "trackingList": [],
-                                      "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                      "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                     }
                                   }]
                                 },
@@ -10830,7 +10830,7 @@ function closePopup(){
                                       "_type": "Action",
                                       "type": "NAV",
                                       "trackingList": [],
-                                      "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                      "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                     }
                                   }]
                                 },
@@ -10929,7 +10929,7 @@ function closePopup(){
                                       "_type": "Action",
                                       "type": "NAV",
                                       "trackingList": [],
-                                      "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                      "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                     }
                                   }]
                                 },
@@ -11040,7 +11040,7 @@ function closePopup(){
                                       "_type": "Action",
                                       "type": "NAV",
                                       "trackingList": [],
-                                      "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                      "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                     }
                                   }]
                                 },
@@ -11139,7 +11139,7 @@ function closePopup(){
                                       "_type": "Action",
                                       "type": "NAV",
                                       "trackingList": [],
-                                      "URL": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/"
+                                      "URL": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/"
                                     }
                                   }]
                                 },
@@ -11903,7 +11903,7 @@ function closePopup(){
                                 "_type": "TextualDisplay",
                                 "textSpans": [{
                                   "_type": "TextSpan",
-                                  "text": "HURA500 | Link Login Alternatif Terbaru OJOL 500 RTP Peluang Menang tertinggi 2026",
+                                  "text": "RAJA01 😎 Platform Resmi keluarga online Game Togel dan Slot Super Gacor 2026",
                                   "styles": ["BOLD"]
                                 }]
                               }
@@ -12760,7 +12760,7 @@ function closePopup(){
                   "l": ["g", "url"],
                   "r": {
                     "type": "URL",
-                    "value": "https://tangereapp.com/amplifying-the-voice-of-the-filipino/?iid=406125476878&var=676453543141"
+                    "value": "https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/?iid=406125476878&var=676453543141"
                   }
                 }, {
                   "l": ["w", 0, 2, "head", "renderBody"],
