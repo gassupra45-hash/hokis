@@ -1,4 +1,4 @@
 User-agent: *
 Allow: /
 
-Sitemap: https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/sitemap.xml
+Sitemap: https://tangereapp.com/pbbms-sept-trust-satisfaction-ratings-rose-vp-sara-down-tangere-survey/sitemap.xml
