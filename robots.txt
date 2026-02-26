@@ -1,4 +1,4 @@
 User-agent: *
 Allow: /
 
-Sitemap: https://tangereapp.com/amplifying-the-voice-of-the-filipino/sitemap.xml
+Sitemap: https://tangereapp.com/rep-tulfo-still-top-choice-for-2025-senatorial-race-tangere-survey/sitemap.xml
