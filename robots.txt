@@ -1,4 +1,4 @@
 User-agent: *
 Allow: /
 
-Sitemap: https://staff.fk.unej.ac.id/sitemap.xml
+Sitemap: https://tangereapp.com/escudero-led-senate-urged-to-pass-economic-cha-cha/sitemap.xml
